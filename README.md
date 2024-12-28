@@ -175,8 +175,6 @@ Nesse dia, apareceu **LariGHC** em **Brothers**, e **WorldPSI** a viu. Eles se o
 
 Eles conversaram, e **LariGHC** foi com **WorldPSI** para Antenusian. Ele a deixou em sua casa e, quando a noite já estava escura nos céus, eles tiveram um filho, que recebeu o nome de **NikoDasPanquecas** (ou _Niko_).  
 
-# Capitulo VII - A ascensão de WorldPSI
-
 
 
 
