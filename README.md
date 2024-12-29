@@ -175,145 +175,191 @@ Nesse dia, apareceu **LariGHC** em **Brothers**, e **WorldPSI** a viu. Eles se o
 
 Eles conversaram, e **LariGHC** foi com **WorldPSI** para Antenusian. Ele a deixou em sua casa e, quando a noite já estava escura nos céus, eles tiveram um filho, que recebeu o nome de **NikoDasPanquecas** (ou _Niko_).  
 
-# Capitulo VII - A ascensão de WorldPSI
+# Capítulo VII - A ascensão de WorldPSI
 
-Alguns meses se passaram. **WorldPSI** estava no centro quando **W_Gamers** se aproximou dele para pedir-lhes comida.  
+Alguns meses se passaram. **WorldPSI** estava no centro quando **W_Gamers** se aproximou dele para pedir comida.  
 
 > _Olá jovem, você tem comida? Algo que possa me dar?_  
 > — Perguntou **W_Gamers**.  
 
-> _Olha, eu só tenho aqui dois paes de anteontem. Tome quinze esmeraldas para que compres algo de teu gosto!_  
+> _Olha, eu só tenho aqui dois pães de anteontem. Tome quinze esmeraldas para que compres algo de teu gosto!_  
 > — Respondeu **WorldPSI**.  
 
-**W_Gamers** agradeceu e na feira comprou _vinte e oito batatas_.  
-Ao entardecer, **WorldPSI** estava retornando para casa quando viu algo cair dos céus a alguns quilometros de onde ele estava.  
-Ele olhou para o céu e lembrou que FeTuber havia posto uma barreira lá em cima. Então o que havia caido em **Brothers**?  
-Chegando no local, ele viu uma enorme cratera. Descendo lá, foi possivel ver algo que estava brilhando muito.  
+**W_Gamers** agradeceu e, na feira, comprou _vinte e oito batatas_.  
+Ao entardecer, **WorldPSI** estava retornando para casa quando viu algo cair dos céus a alguns quilômetros de onde ele estava.  
+Ele olhou para o céu e lembrou que **FeTuber** havia posto uma barreira lá em cima. Então, o que havia caído em **Brothers**?  
+Chegando no local, ele viu uma enorme cratera. Descendo lá, foi possível ver algo que estava brilhando muito.  
 
-> _Oi? Tem alguem ai?_  
+> _Oi? Tem alguém aí?_  
 > — Perguntou **WorldPSI**  
 
-A luz se apagou e, foi possivel visualizar Axolotl que respondeu-lhe:  
+A luz se apagou, e foi possível visualizar **Axolotl**, que respondeu-lhe:  
 
-> _Ora quem temos aqui! **WorldPSI**, o segundo mortal criado pelo meu filho..._  
+> _Ora, quem temos aqui! **WorldPSI**, o segundo mortal criado pelo meu filho..._  
 
 > _Você é o pai de FeTuber?_  
-> — Perguntou **WorldPSI**  
+> — Perguntou **WorldPSI**.  
 
-> _Sim, eu sou pai de FeTuber! E vim pessoalmente ter contigo para falar de assuntos serios._  
+> _Sim, eu sou pai de FeTuber! E vim pessoalmente ter contigo para falar de assuntos sérios._  
 
-> _Diga senhor!_  
-> — Disse **WorldPSI**  
+> _Diga, senhor!_  
+> — Disse **WorldPSI**.  
 
-> _Eu já vi como a filosofia acabou com varios mundos, pois ela volta a criatura contra seu criador. Peça que **Mart21** pare ou FeTuber não o deixará vivo._  
-> — Disse Axolotl  
+> _Eu já vi como a filosofia acabou com vários mundos, pois ela volta a criatura contra seu criador. Peça que **Mart21** pare ou FeTuber não o deixará vivo._  
+> — Disse **Axolotl**.  
 
-> _ Certo!_  
-> — Respondeu **WorldPSI**  
+> _Certo!_  
+> — Respondeu **WorldPSI**.  
 
-> _E o mais importante, tome a coroa de **Antenusian** para si e mudo o nome do local para **Lords**. Você chamará os magos para trabalharem contigo no local, e começaram a adorar FeTuber!_  
-> — Continuou Axolotl  
+> _E o mais importante: tome a coroa de **Antenusian** para si e mude o nome do local para **Lords**. Você chamará os magos para trabalharem contigo no local, e começarão a adorar FeTuber!_  
+> — Continuou **Axolotl**.  
 
 > _Entendi, é só isso?_  
-> — Perguntou **WorldPSI**  
+> — Perguntou **WorldPSI**.  
 
-> _Basicamente! Você se tornará o primeiro Papa por FeTuber, e com isso as bençãos dele serão contigo. E elas começam aqui... Você sendo agraciado com o poder do voo!_  
-> — Concluiu Axolotl  
+> _Basicamente! Você se tornará o primeiro Papa por FeTuber, e com isso as bênçãos dele serão contigo. E elas começam aqui... Você sendo agraciado com o poder do voo!_  
+> — Concluiu **Axolotl**.  
 
-Com isso, Axolotl bateu suas nadadeiras e voou aos céus. Mas esta passagem, seja por um deus, ou por um mortal, não pode ser realizada sem deixar uma ferida no **espaço-tempo** afinal, lugar de _deuses_ é acima dos céus e dos _mortais_ abaixo dele.  
-**WorldPSI** retornou para casa voando e ao chegar lá, **LariGHC**, sua esposa estava com **Niko**, seu filho, o esperando e ela disse-lhes brava:
+Com isso, **Axolotl** bateu suas nadadeiras e voou aos céus. Mas esta passagem, seja por um deus ou por um mortal, não pode ser realizada sem deixar uma ferida no **espaço-tempo**, afinal, lugar de _deuses_ é acima dos céus e dos _mortais_ abaixo dele.  
+**WorldPSI** retornou para casa voando e, ao chegar lá, **LariGHC**, sua esposa, estava com **Niko**, seu filho, o esperando. Ela disse-lhe, brava:  
 
-> _Aonde você estava **WorldPSI**? Seu irresponsavel... Isso são horas de chegar em casa?!_  
+> _Aonde você estava, **WorldPSI**? Seu irresponsável... Isso são horas de chegar em casa?!_  
 
 **WorldPSI** começou a voar e respondeu:  
 
-> _Eu encontrei um ser poderoso falante que disse ser pai de FeTuber, ele me deu poderes e algumas ordens!_
+> _Eu encontrei um ser poderoso falante que disse ser pai de FeTuber, ele me deu poderes e algumas ordens!_  
 
-> _Você bebeu **WorldPSI**?_  
-> — Perguntou **LariGHC**  
+> _Você bebeu, **WorldPSI**?_  
+> — Perguntou **LariGHC**.  
 
-> _Eu não bebi! Não ta vendo que eu estou voando?_  
-> — Respondeu **WorldPSI**  
+> _Eu não bebi! Não tá vendo que eu estou voando?_  
+> — Respondeu **WorldPSI**.  
 
-Ela se convenceu e os três foram dormir.  
-No outro dia, antes do clarar da aurora, **WorldPSI** foi até **Adriel** E disse-lhes:
+Ela se convenceu, e os três foram dormir.  
+No outro dia, antes do clarear da aurora, **WorldPSI** foi até **Adriel** e disse-lhe:  
 
-> _Me de a coroa!_  
+> _Me dê a coroa!_  
 
-> _Não, você esta louco?_  
-> — Respondeu **Adriel**  
+> _Não, você está louco?_  
+> — Respondeu **Adriel**.  
 
 > _FeTuber que me mandou, e você deve obedecer!_  
-> — Continuou **WorldPSI**  
+> — Continuou **WorldPSI**.  
 
 > _E por que devo acreditar nesse seu papo furado?_  
-> — Perguntou **Adriel**  
+> — Perguntou **Adriel**.  
 
-> _Por que ele me deu poderes!_  
-> — Respondeu **WorldPSI** que começou a voar  
+> _Porque ele me deu poderes!_  
+> — Respondeu **WorldPSI**, que começou a voar.  
 
-**Adriel** então, acreditou nele e maravilhado entregou-lhes a coroa tornando **WorldPSI** rei de **Antenusian**.  
+**Adriel** então acreditou nele e, maravilhado, entregou-lhe a coroa, tornando **WorldPSI** rei de **Antenusian**.  
 
-# Capitulo VIII - Lords: A manifestação dos reino superior
+# Capítulo VIII - Lords: A manifestação do reino superior
 
-Quando os moradores acordaram e foram saindo de suas casas se assustaram ao ver que **WorldPSI** estava com a coroa. Como sua primeira medida mudou o nome do local para **Lords** e convocou os magos para se juntarem ali.  
+Quando os moradores acordaram e foram saindo de suas casas, se assustaram ao ver que **WorldPSI** estava com a coroa. Como sua primeira medida, mudou o nome do local para **Lords** e convocou os magos para se juntarem ali.  
 Ele murou a cidade e começou a construção do templo para adorar a FeTuber.  
 
-**WorldPSI** foi pessoalmente ter com **Mart21** para adverti-lo pela ultima vez sobre suas heresias, porém como sempre **WorldPSI** foi ignorado por ele.  
+**WorldPSI** foi pessoalmente ter com **Mart21** para adverti-lo pela última vez sobre suas heresias, porém, como sempre, **WorldPSI** foi ignorado por ele.  
 
-A noticia se espalhou e varios magos foram para a **Lords**.  
-Eles teriam de fazer uma prova para ver seu poder como magos e seus conhecimentos. Eram candidatos, **W_Gamers**, **lupphy**, **milkchoko223** e o duque **Draguigamer**. As provas foram aplicadas por **Niko**. E dentre os quarto magos, apenas **milkchoko223** reprovou. Com isso **Lords** expandiu-se e eles obteram _98%_ de todos os recursos minerais de **Brothers**.  
+A notícia se espalhou, e vários magos foram para **Lords**.  
+Eles teriam de fazer uma prova para ver seu poder como magos e seus conhecimentos. Eram candidatos: **W_Gamers**, **Afonso_24**, **lupphy**, **milkchoko223** e o duque **Draguigamer**. As provas foram aplicadas por **Niko**, e, dentre eles, apenas **milkchoko223** reprovou. Com isso, **Lords** expandiu-se e eles obtiveram _98%_ de todos os recursos minerais de **Brothers**.  
 
+Passada uma semana de todos estes fatos, **Draguigamer**, **RafaCraft2008** e **Mart21** estavam andando por **Elinar** quando encontraram um _parkour_. Eles começaram a tentar terminá-lo, e **RafaCraft2008** chegou ao fim, obtendo um livro que marcava coordenadas de um local ao sul. Eles seguiram até lá, e havia várias criaturas hostis, que foram dificilmente eliminadas. Eles procuraram e, atrás de uma árvore, tinha uma placa escrita:  
 
-E era passado uma semana de todos estes fatos. **Draguigamer**, **RafaCraft2008** e **Mart21** estavam andando por **Elinar** quando encontraram um _Parkour_, eles começaram a tentar termina-lo e, **RafaCraft2008** chegou a fim, obtendo um livro que marcava coordenadas de um local ao sul. Eles seguiram até lá, e havia varias criaturas hostis, que foram dificilmente eliminadas. Eles procuraram e atras de uma arvora tinha uma placa escrita:  
+> Parabéns! Vocês vieram aqui  
+> à toa, o verdadeiro desafio  
+> está ao norte...  
 
-> Parabens! Vocês vieram aqui  
-> a toa, o verdadeiro desafio  
-> esta ao Norte...  
-
-Os amigos estavam exaustos, eles pousaram ali e ao amanhecer seguiram viagem.  
-Quando chegaram no centro, pararam para comprar comida. Mais pra frente eles viram uma placa indicando que **Elinar** estava a _10 minutos_, tinham ido tão longe atoa. **RafaCraft2008** então desistiu e foi para casa. Com isso os dois amigos estavam seu a bússola, já que ela pertencia ao que ficou para trás.  
-A viagem durou, mais algumas horas e ao chegarem a _barreira_, o limite de **Brothers**. E encontraram uma cruz de cabeça para baixo cheia de flores, então **Draguigamer** disse:  
+Os amigos estavam exaustos. Eles pousaram ali e, ao amanhecer, seguiram viagem.  
+Quando chegaram no centro, pararam para comprar comida. Mais à frente, eles viram uma placa indicando que **Elinar** estava a _10 minutos_. Tinham ido tão longe à toa. **RafaCraft2008** então desistiu e foi para casa. Com isso, os dois amigos estavam sem a bússola, já que ela pertencia ao que ficou para trás.  
+A viagem durou mais algumas horas e, ao chegarem à _barreira_, o limite de **Brothers**, encontraram uma cruz de cabeça para baixo cheia de flores. Então **Draguigamer** disse:  
 
 > _Acho que é aqui! Vamos cavar para baixo?_  
 
 > _Vamos!_  
-> — Respondeu **Mart21**  
+> — Respondeu **Mart21**.  
 
-Eles começaram a cavar, e encontraram umna cripta bem fundo, havia um cadaver com uma armadura e uma coroa. **Draguigamer** pegou a armadura e a equipou.  
-Os dois pegaram tudo dos baús. Havia vários minerios, joias e itens magicos no local. Após saquearem tudo, retornaram para casa.  
+Eles começaram a cavar e encontraram uma cripta bem fundo. Havia um cadáver com uma armadura e uma coroa. **Draguigamer** pegou a armadura e a equipou.  
+Os dois pegaram tudo dos baús. Havia vários minérios, joias e itens mágicos no local. Após saquearem tudo, retornaram para casa.  
 
 Quando **Draguigamer** chegou em **Lords**, **WorldPSI** viu sua armadura e os itens e o questionou sobre a origem daquilo:  
 
 > _Onde você conseguiu essa armadura?_  
 
 > _Em uma cripta ao norte!_  
-> — Respondeu **Draguigamer**  
+> — Respondeu **Draguigamer**.  
 
 > _Achei ela bonita! De que ela é feita?_  
+> — Perguntou **WorldPSI**.  
+
+> _Eu não sei... Mas, se quiser, eu a retiro para você examinar!_  
+> — Sugeriu **Draguigamer**.  
+
+**WorldPSI** concordou, mas, quando **Draguigamer** tentou retirar a armadura, viu que ela estava _amaldiçoada_ e não podia ser retirada. Ele tentou de todas as formas, mas nem dano conseguiu tomar com ela equipada. E, em meio às tentativas falhas, a armadura dropou um livro. Ele estava assinado como _Diário_ por **euottoo**. **Draguigamer** dropou o livro para **WorldPSI**, que, ao ver esse nome, ficou assustado e chamou **Riuquen** para investigar com ele. Eles leram várias coisas no livro, inclusive que a armadura só poderia ser retirada após a morte do `Jogador` e quem a usasse seria o **Rei Mago**.  
+
+No outro dia, **WorldPSI** e **Riuquen** foram até lá e encontraram os restos mortais de **euottoo**. Eles pegaram os ossos e organizaram um **Grande Funeral** para ele. Todos compareceram. **Draguigamer** e **Mart21** entregaram para **WorldPSI** tudo o quanto pegaram da cripta, exceto pela armadura, que estava vinculada a **Draguigamer**.  
+
+# Capitulo IX - O Dia de todos os deuses
+
+Aquele dia foi todo dedicado as homenagens. E a tumba de **euottoo** localizada abaixo de **Lords** foi fechada ao pôr-do-sol.  
+Todos foram dormir normalmente, mas quando acordaram o sol não havia nascido, em contra-partida havia monstros, mortos-vivos, como zumbis e esqueletos por toda parte. Era uma infestação.  
+**WorldPSI** foi rezar sobre para FeTuber, mas não obteve resposta por parte dele. A lua vermelha, parada nos céus. Varias pessoas começaram a se abrigar em **Lords**.  
+
+**1º hora (8h)** - Todos estavam muito assustados e foi aqui que o **Reino de Austria** foi derrotado por mortos-vivos. **fenixllil** e **Kimxz** forar para a capital a procura de abrigo. **Salun** organizou uma frota para proteger os civis e o palacio real. **RafaCraft2008** e **Adonai** foram nomeados _Generais_.  
+
+**2º hora (9h)** - Todos estavam rezando e pedindo perdão pelos seus erros. A frente internacional cobrou de **WorldPSI** alguma ação, já que ele como _Papa_ era representante de FeTuber em **Brothers**.  
+
+**3º hora (10h)** - **Salun**, **manubiell** e **fenixllil** foram para **Lords** onde **WorldPSI** se pronunciou:  
+
+> _Há varios anos, eu já vi isto acontecer. Criaturas e monstros voltando-se contra nos `Jogadores`, e coisas estranhas acontecendo. Ou fizemos algo que não agradou a FeTuber, ou ele nos abandonou..._  
+
+Todos ficaram assustados ao ouvir isso, exceto **Mart21** que afirmava que tudo que estava acontecendo não tinha nada haver com FeTuber e era mero acaso.  
+
+**4º hora (11h)** - **RafaCraft2008** foi morto pelos monstros, e em uma missão muito arriscada levou todos os civis para **Lords**. O tempo parecia passar mais lento. E os relogios estavam parados exatamente em _meia-noite_.  
+
+**5º hora (12h)** - Os moradores de **Elinar** chegaram a **Lords** e receberam cuidados de medicos e dos magos. Os soldados perceberam que a cada instante os monstros estavam cada vez mais fortes. **WorldPSI** estava conversando com os nobres, e eles estavam estimando os prejuizos e quanto tempo ainda faltava até o final do dia.  
+
+**6º hora (13h)** - Alguns soldados começaram a ser abatidos. **Draguigamer**, o **Rei Mago**, pediu que **Adonai** fosse para **Elinar** até sua provincia e pegasse todos os recursos de guerra que encontrasse pela frente para ajuda-los a ter chances de sobrevivencia.  
+
+**7º hora (14h)** - Nada de muito importante aconteceu aqui! Algumas pessoas já estavam perdendo as esperanças...  
+
+**8º hora (15h)** - **Adonai** retornou com o arsenal de **Draguigamer**. Um zumbi quebrou uma das barras de ferro e alguns monstros acabaram entrando pela barreira, mas logo foram derrotados. **WorldPSI** ordenou que tampassem a entrada com pedras. **Salun** então mormurou:  
+
+> _Você quer nos prender aqui?_  
+
+> _Claro que não! Estou apenas tentando nos manter seguros..._  
+> — Respondeu **WorldPSI**  
+
+> _Nos impossibilitando de sair?  
+> — Perguntou **Salun**  
+
+> _Pra que alguem vai querer sair? Vão vé que a morte esta a espreita ao lado de fora?!_  
 > — Perguntou **WorldPSI**  
 
-> _Eu não sei... Mas se quiser eu a retiro para você examinar!_  
-> — Sugeriu **Draguigamer**  
+**Salun** ordenou que prendessem **WorldPSI** mas seus homens não obedeceram. E então **manubiell** disse-lhes:  
 
-**WorldPSI** concordou, mas quando **Draguigamer** tentou retirar a armadura viu que ela estava _amaldiçoada_ e não podia ser retirada. Ele tentou de todas as formas, mas nem dano conseguiu tomar com ela equipada. E em meio as tentativas falhas a armadura dropou um livro. Ele estava assinado como _Diario_ por **euottoo**. **Draguigamer** dropou o livro para **WorldPSI** que ao ver esse nome ficou assustado e chamou **Riuquen** para investigar com ele. Leram varias coisas no livro, inclusive que a armadura só poderia ser retirada após a morte do `Jogador` e quem usasse ela seria o **Rei Mago**. 
+> _**Salun**, senhor.. Não estamos em **Elinar**, aqui não temos nenhuma autoridade!_  
 
-No outro dia **WorldPSI** e **Riuquen** foram até a lá e encontraram os restos mortais de **euottoo**. Eles pegaram os ossos e organizaram um **Grande Funeral** para ele. Todos compareceram. **Draguigamer** e **Mart21** entregaram para **WorldPSI** tudo o quanto pegaram da cripta, exceto pela armadura que estava vinculada a **Draguigamer**.  
+**WorldPSI** ordenou para que dois magos escoltassem **Salun** e o impedissem de fazer alguma besteira.  
 
+**9º hora (16h)** - A tensão politcia começou a aumentar. O _arqui-duque_ **manubiell** estava espantado com tamanha infantilidade do Imperador. O **Rei Mago** pronunciou-se sobre os recursos alimentares, e que ainda são um reino com limites. **WorldPSI** como Papa declarou que todos os reinos que estavam ali, deveriam pagar tributos para **Lords** a fim de cobrir os gastos deles os protegendo.  
 
+**10º hora (17h)** - Um grupo de aldeões foram avistados e socorridos. Mas foi descoberto que eles estavam infectados com um vírus zumbi. E eles foram presos em uma sala aonde ficaria de quarentena para examina-los futuramente.  
 
+**11º hora (18h)** - Ocorreu a missa do coelho, em que **WorldPSI** trouxe ao templo _vinte e dois_ coelhos que haviam em **Lords**. Então ele deu _sete_ coelhos para os nobres de cada reino. E ficou com _um_ para si, e disse:  
 
+> _Peguem e façam assim como eu com vossos coelhos..._  
 
+**WorldPSI** rezou e matou o coelho que largou seu pé, e ele continuou a dizer:  
 
+> _Se todos os coelhos, assim como o meu largarem seus pés, então o sol havera de nascer novamente!_  
 
+E assim foi, todos os coelhos largaram seus pés. E **Salun** perguntou:  
 
+> _O que me garante que o sol vai nascer mesmo, e isto não foi apenas uma grande sorte?_
 
-
-
-
-
-
-
+> _Diferente de mim e **Riuquen**, ninguem aqui viu FeTuber, mas já ouviram a voz dos céus e todas as vossas rezas foram respondidas! O que lhes leva a não acreditar nele?_
+> — Perguntou **WorldPSI**  
 
 
 
