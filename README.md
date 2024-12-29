@@ -275,9 +275,9 @@ Os amigos estavam exaustos, eles pousaram ali e ao amanhecer seguiram viagem.
 Quando chegaram no centro, pararam para comprar comida. Mais pra frente eles viram uma placa indicando que **Elinar** estava a _10 minutos_, tinham ido tão longe atoa. **RafaCraft2008** então desistiu e foi para casa. Com isso os dois amigos estavam seu a bússola, já que ela pertencia ao que ficou para trás.  
 A viagem durou, mais algumas horas e ao chegarem a _barreira_, o limite de **Brothers**. E encontraram uma cruz de cabeça para baixo cheia de flores, então **Draguigamer** disse:  
 
-> _Acho que é aqui! Vamos cavar para baixo?_
+> _Acho que é aqui! Vamos cavar para baixo?_  
 
-> _Vamos!_
+> _Vamos!_  
 > — Respondeu **Mart21**  
 
 Eles começaram a cavar, e encontraram umna cripta bem fundo, havia um cadaver com uma armadura e uma coroa. **Draguigamer** pegou a armadura e a equipou.  
@@ -285,16 +285,16 @@ Os dois pegaram tudo dos baús. Havia vários minerios, joias e itens magicos no
 
 Quando **Draguigamer** chegou em **Lords**, **WorldPSI** viu sua armadura e os itens e o questionou sobre a origem daquilo:  
 
-> _Onde você conseguiu essa armadura?_
+> _Onde você conseguiu essa armadura?_  
 
 > _Em uma cripta ao norte!_  
 > — Respondeu **Draguigamer**  
 
-> _Achei ela bonita! De que ela é feita?_
-> — Perguntou **WorldPSI**
+> _Achei ela bonita! De que ela é feita?_  
+> — Perguntou **WorldPSI**  
 
 > _Eu não sei... Mas se quiser eu a retiro para você examinar!_  
-> — Sugeriu **Draguigamer**
+> — Sugeriu **Draguigamer**  
 
 **WorldPSI** concordou, mas quando **Draguigamer** tentou retirar a armadura viu que ela estava _amaldiçoada_ e não podia ser retirada. Ele tentou de todas as formas, mas nem dano conseguiu tomar com ela equipada. E em meio as tentativas falhas a armadura dropou um livro. Ele estava assinado como _Diario_ por **euottoo**. **Draguigamer** dropou o livro para **WorldPSI** que ao ver esse nome ficou assustado e chamou **Riuquen** para investigar com ele. Leram varias coisas no livro, inclusive que a armadura só poderia ser retirada após a morte do `Jogador` e quem usasse ela seria o **Rei Mago**. 
 
