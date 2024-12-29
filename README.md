@@ -179,14 +179,150 @@ Eles conversaram, e **LariGHC** foi com **WorldPSI** para Antenusian. Ele a deix
 
 Alguns meses se passaram. **WorldPSI** estava no centro quando **W_Gamers** se aproximou dele para pedir-lhes comida.  
 
-> _Olá jovem, você tem comida? Algo que possa me dar?_
+> _Olá jovem, você tem comida? Algo que possa me dar?_  
 > — Perguntou **W_Gamers**.  
 
-> _Olha, eu só tenho aqui dois paes de anteontem. Tome quinze esmeraldas para que compres algo de teu gosto!_
+> _Olha, eu só tenho aqui dois paes de anteontem. Tome quinze esmeraldas para que compres algo de teu gosto!_  
 > — Respondeu **WorldPSI**.  
 
 **W_Gamers** agradeceu e na feira comprou _vinte e oito batatas_.  
-Ao entardecer, **WorldPSI** estava
+Ao entardecer, **WorldPSI** estava retornando para casa quando viu algo cair dos céus a alguns quilometros de onde ele estava.  
+Ele olhou para o céu e lembrou que FeTuber havia posto uma barreira lá em cima. Então o que havia caido em **Brothers**?  
+Chegando no local, ele viu uma enorme cratera. Descendo lá, foi possivel ver algo que estava brilhando muito.  
+
+> _Oi? Tem alguem ai?_  
+> — Perguntou **WorldPSI**  
+
+A luz se apagou e, foi possivel visualizar Axolotl que respondeu-lhe:  
+
+> _Ora quem temos aqui! **WorldPSI**, o segundo mortal criado pelo meu filho..._  
+
+> _Você é o pai de FeTuber?_  
+> — Perguntou **WorldPSI**  
+
+> _Sim, eu sou pai de FeTuber! E vim pessoalmente ter contigo para falar de assuntos serios._  
+
+> _Diga senhor!_  
+> — Disse **WorldPSI**  
+
+> _Eu já vi como a filosofia acabou com varios mundos, pois ela volta a criatura contra seu criador. Peça que **Mart21** pare ou FeTuber não o deixará vivo._  
+> — Disse Axolotl  
+
+> _ Certo!_  
+> — Respondeu **WorldPSI**  
+
+> _E o mais importante, tome a coroa de **Antenusian** para si e mudo o nome do local para **Lords**. Você chamará os magos para trabalharem contigo no local, e começaram a adorar FeTuber!_  
+> — Continuou Axolotl  
+
+> _Entendi, é só isso?_  
+> — Perguntou **WorldPSI**  
+
+> _Basicamente! Você se tornará o primeiro Papa por FeTuber, e com isso as bençãos dele serão contigo. E elas começam aqui... Você sendo agraciado com o poder do voo!_  
+> — Concluiu Axolotl  
+
+Com isso, Axolotl bateu suas nadadeiras e voou aos céus. Mas esta passagem, seja por um deus, ou por um mortal, não pode ser realizada sem deixar uma ferida no **espaço-tempo** afinal, lugar de _deuses_ é acima dos céus e dos _mortais_ abaixo dele.  
+**WorldPSI** retornou para casa voando e ao chegar lá, **LariGHC**, sua esposa estava com **Niko**, seu filho, o esperando e ela disse-lhes brava:
+
+> _Aonde você estava **WorldPSI**? Seu irresponsavel... Isso são horas de chegar em casa?!_  
+
+**WorldPSI** começou a voar e respondeu:  
+
+> _Eu encontrei um ser poderoso falante que disse ser pai de FeTuber, ele me deu poderes e algumas ordens!_
+
+> _Você bebeu **WorldPSI**?_  
+> — Perguntou **LariGHC**  
+
+> _Eu não bebi! Não ta vendo que eu estou voando?_  
+> — Respondeu **WorldPSI**  
+
+Ela se convenceu e os três foram dormir.  
+No outro dia, antes do clarar da aurora, **WorldPSI** foi até **Adriel** E disse-lhes:
+
+> _Me de a coroa!_  
+
+> _Não, você esta louco?_  
+> — Respondeu **Adriel**  
+
+> _FeTuber que me mandou, e você deve obedecer!_  
+> — Continuou **WorldPSI**  
+
+> _E por que devo acreditar nesse seu papo furado?_  
+> — Perguntou **Adriel**  
+
+> _Por que ele me deu poderes!_  
+> — Respondeu **WorldPSI** que começou a voar  
+
+**Adriel** então, acreditou nele e maravilhado entregou-lhes a coroa tornando **WorldPSI** rei de **Antenusian**.  
+
+# Capitulo VIII - Lords: A manifestação dos reino superior
+
+Quando os moradores acordaram e foram saindo de suas casas se assustaram ao ver que **WorldPSI** estava com a coroa. Como sua primeira medida mudou o nome do local para **Lords** e convocou os magos para se juntarem ali.  
+Ele murou a cidade e começou a construção do templo para adorar a FeTuber.  
+
+**WorldPSI** foi pessoalmente ter com **Mart21** para adverti-lo pela ultima vez sobre suas heresias, porém como sempre **WorldPSI** foi ignorado por ele.  
+
+A noticia se espalhou e varios magos foram para a **Lords**.  
+Eles teriam de fazer uma prova para ver seu poder como magos e seus conhecimentos. Eram candidatos, **W_Gamers**, **lupphy**, **milkchoko223** e o duque **Draguigamer**. As provas foram aplicadas por **Niko**. E dentre os quarto magos, apenas **milkchoko223** reprovou. Com isso **Lords** expandiu-se e eles obteram _98%_ de todos os recursos minerais de **Brothers**.  
+
+
+E era passado uma semana de todos estes fatos. **Draguigamer**, **RafaCraft2008** e **Mart21** estavam andando por **Elinar** quando encontraram um _Parkour_, eles começaram a tentar termina-lo e, **RafaCraft2008** chegou a fim, obtendo um livro que marcava coordenadas de um local ao sul. Eles seguiram até lá, e havia varias criaturas hostis, que foram dificilmente eliminadas. Eles procuraram e atras de uma arvora tinha uma placa escrita:  
+
+> Parabens! Vocês vieram aqui  
+> a toa, o verdadeiro desafio  
+> esta ao Norte...  
+
+Os amigos estavam exaustos, eles pousaram ali e ao amanhecer seguiram viagem.  
+Quando chegaram no centro, pararam para comprar comida. Mais pra frente eles viram uma placa indicando que **Elinar** estava a _10 minutos_, tinham ido tão longe atoa. **RafaCraft2008** então desistiu e foi para casa. Com isso os dois amigos estavam seu a bússola, já que ela pertencia ao que ficou para trás.  
+A viagem durou, mais algumas horas e ao chegarem a _barreira_, o limite de **Brothers**. E encontraram uma cruz de cabeça para baixo cheia de flores, então **Draguigamer** disse:  
+
+> _Acho que é aqui! Vamos cavar para baixo?_
+
+> _Vamos!_
+> — Respondeu **Mart21**  
+
+Eles começaram a cavar, e encontraram umna cripta bem fundo, havia um cadaver com uma armadura e uma coroa. **Draguigamer** pegou a armadura e a equipou.  
+Os dois pegaram tudo dos baús. Havia vários minerios, joias e itens magicos no local. Após saquearem tudo, retornaram para casa.  
+
+Quando **Draguigamer** chegou em **Lords**, **WorldPSI** viu sua armadura e os itens e o questionou sobre a origem daquilo:  
+
+> _Onde você conseguiu essa armadura?_
+
+> _Em uma cripta ao norte!_  
+> — Respondeu **Draguigamer**  
+
+> _Achei ela bonita! De que ela é feita?_
+> — Perguntou **WorldPSI**
+
+> _Eu não sei... Mas se quiser eu a retiro para você examinar!_  
+> — Sugeriu **Draguigamer**
+
+**WorldPSI** concordou, mas quando **Draguigamer** tentou retirar a armadura viu que ela estava _amaldiçoada_ e não podia ser retirada. Ele tentou de todas as formas, mas nem dano conseguiu tomar com ela equipada. E em meio as tentativas falhas a armadura dropou um livro. Ele estava assinado como _Diario_ por **euottoo**. **Draguigamer** dropou o livro para **WorldPSI** que ao ver esse nome ficou assustado e chamou **Riuquen** para investigar com ele. Leram varias coisas no livro, inclusive que a armadura só poderia ser retirada após a morte do `Jogador` e quem usasse ela seria o **Rei Mago**. 
+
+No outro dia **WorldPSI** e **Riuquen** foram até a lá e encontraram os restos mortais de **euottoo**. Eles pegaram os ossos e organizaram um **Grande Funeral** para ele. Todos compareceram. **Draguigamer** e **Mart21** entregaram para **WorldPSI** tudo o quanto pegaram da cripta, exceto pela armadura que estava vinculada a **Draguigamer**.  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
