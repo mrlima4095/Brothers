@@ -175,7 +175,18 @@ Nesse dia, apareceu **LariGHC** em **Brothers**, e **WorldPSI** a viu. Eles se o
 
 Eles conversaram, e **LariGHC** foi com **WorldPSI** para Antenusian. Ele a deixou em sua casa e, quando a noite já estava escura nos céus, eles tiveram um filho, que recebeu o nome de **NikoDasPanquecas** (ou _Niko_).  
 
+# Capitulo VII - A ascensão de WorldPSI
 
+Alguns meses se passaram. **WorldPSI** estava no centro quando **W_Gamers** se aproximou dele para pedir-lhes comida.  
+
+> _Olá jovem, você tem comida? Algo que possa me dar?_
+> — Perguntou **W_Gamers**.  
+
+> _Olha, eu só tenho aqui dois paes de anteontem. Tome quinze esmeraldas para que compres algo de teu gosto!_
+> — Respondeu **WorldPSI**.  
+
+**W_Gamers** agradeceu e na feira comprou _vinte e oito batatas_.  
+Ao entardecer, **WorldPSI** estava
 
 
 
