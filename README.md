@@ -374,14 +374,15 @@ E assim foi, todos os coelhos largaram seus pés. E **Salun** perguntou:
 
 No outro dia o sol raiou e todos puderam ouvir outra vez a voz dos céus que dizia:  
 
-> Há mais ou menos um mês, meu pai desceu a **Brothers** para falar pessoalmente com um mortal!  
-> Quando ele fez isso deixou uma fenda na _Barreira_ que separa os céus. Por isso algumas coisas mudarão,  
-> como o sol não nascer em um dia da terceira semana do mês. As demais coisas vocês descobrirão sozinhos
-> com o passar dos dias. Até mais mortais...
+> Há mais ou menos um mês, meu pai desceu a **Brothers** para falar pessoalmente com um mortal! Quando ele fez isso deixou uma fenda na _Barreira_ que separa os céus. Por isso algumas coisas mudarão, como o sol não nascer em um dia da terceira semana do mês. As demais coisas vocês descobrirão sozinhos com o passar dos dias. Até mais mortais...
 
 # Capitulo X - Caminhos Opostos
 
+Já que FeTuber não agia, nem respondia as rezas neste dia, **WorldPSI**, o Papa, batisou este dia de _Dia de todos os deuses_.  
+**Elinar** teve prejuizos estimados em _$ 1.593_ esmeraldas. Já o **Austria** estimou os danos em até _$ 820_ esmeraldas.  
+**WorldPSI** rezou a primeira missa do herdeiro, que deve acontecer um dia após o _Dia de todos os deuses_.
 
+E apareceram dois novos `Jogadores` em **Brothers**. Seus nomes eram **NineKrl** e **xmx_909**.
 
 
 
