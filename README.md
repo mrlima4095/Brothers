@@ -112,7 +112,6 @@ Elinar desenvolveu-se em atividades agrícolas, e com isso adquiriu muitos recur
 
 Conforme o dia ia tardando, eles foram parando o trabalho, e podia-se ouvir uma voz dos céus que dizia:  
 > _Tragam-me uma ovelha em cinco minutos..._  
-> — Disse voz do céu.  
 
 Eles estranharam, mas não obedeceram. Passados _10 minutos_, começaram a tomar dano de veneno, e a voz falou novamente. Desta vez, **Salun** ordenou que trouxessem uma ovelha. Então, caiu um raio e surgiu um altar de diamantes. Nele, a ovelha foi colocada, e outro raio caiu, matando a ovelha e fazendo o altar desaparecer.  
 
@@ -237,7 +236,6 @@ Com isso, **Axolotl** bateu suas nadadeiras e voou aos céus. Mas esta passagem,
 
 Ela se convenceu, e os três foram dormir.  
 No outro dia, antes do clarear da aurora, **WorldPSI** foi até **Adriel** e disse-lhe:  
-
 > _Me dê a coroa!_  
 
 > _Não, você está louco?_  
@@ -356,10 +354,34 @@ Todos ficaram assustados ao ouvir isso, exceto **Mart21** que afirmava que tudo 
 
 E assim foi, todos os coelhos largaram seus pés. E **Salun** perguntou:  
 
-> _O que me garante que o sol vai nascer mesmo, e isto não foi apenas uma grande sorte?_
+> _O que me garante que o sol vai nascer mesmo, e isto não foi apenas uma grande sorte?_  
 
-> _Diferente de mim e **Riuquen**, ninguem aqui viu FeTuber, mas já ouviram a voz dos céus e todas as vossas rezas foram respondidas! O que lhes leva a não acreditar nele?_
+> _Diferente de mim e **Riuquen**, ninguem aqui viu FeTuber, mas já ouviram a voz dos céus e todas as vossas rezas foram respondidas! O que lhes leva a não acreditar nele?_  
 > — Perguntou **WorldPSI**  
+
+**Salun** não respondeu.  
+
+**12º hora (19h)** - Em meio a toda a situação entre **WorldPSI** e **Salun** foi possivel ouvir um barulho fortissimo vindo de fora das muralhas. Eles subiram até as torres mas não foi possivel indentificar o que havia emitido o som que foi ouvido por eles. Neste ponto, **WorldPSI** ordenou que fosse preparada pousadas e camas para todos os estrangeiros ali presentes.  **Draguigamer** foi conversar com **Salun** em particular e disse-lhes:  
+
+> _Amigo, se isso tudo realmente acabar e o sol nascer novamente, eu irei para **Elinar** contigo e ajudarei você a reconstruir nosso querido reino..._  
+> — Disse **Draguigamer**  
+
+> _Obrigado, mas não precisa! Seje um bom mago aqui e você ajudará muito mais. Não apenas em **Lords**, mas toda a **Brothers**.  
+> — Respondeu **Salun**  
+
+**13º hora (20h)** - Quase todos já haviam ido dormir. Com exceção dos soldados e **WorldPSI**, que passou as ultimas instruções para eles e só então adormeceu...  
+
+
+No outro dia o sol raiou e todos puderam ouvir outra vez a voz dos céus que dizia:  
+
+> Há mais ou menos um mês, meu pai desceu a **Brothers** para falar pessoalmente com um mortal!  
+> Quando ele fez isso deixou uma fenda na _Barreira_ que separa os céus. Por isso algumas coisas mudarão,  
+> como o sol não nascer em um dia da terceira semana do mês. As demais coisas vocês descobrirão sozinhos
+> com o passar dos dias. Até mais mortais...
+
+# Capitulo X - Caminhos Opostos
+
+
 
 
 
