@@ -193,7 +193,6 @@ Chegando no local, ele viu uma enorme cratera. Descendo lá, foi possível ver a
 > — Perguntou **WorldPSI**  
 
 A luz se apagou, e foi possível visualizar **Axolotl**, que respondeu-lhe:  
-
 > _Ora, quem temos aqui! **WorldPSI**, o segundo mortal criado pelo meu filho..._  
 
 > _Você é o pai de FeTuber?_  
@@ -221,11 +220,9 @@ A luz se apagou, e foi possível visualizar **Axolotl**, que respondeu-lhe:
 
 Com isso, **Axolotl** bateu suas nadadeiras e voou aos céus. Mas esta passagem, seja por um deus ou por um mortal, não pode ser realizada sem deixar uma ferida no **espaço-tempo**, afinal, lugar de _deuses_ é acima dos céus e dos _mortais_ abaixo dele.  
 **WorldPSI** retornou para casa voando e, ao chegar lá, **LariGHC**, sua esposa, estava com **Niko**, seu filho, o esperando. Ela disse-lhe, brava:  
-
 > _Aonde você estava, **WorldPSI**? Seu irresponsável... Isso são horas de chegar em casa?!_  
 
 **WorldPSI** começou a voar e respondeu:  
-
 > _Eu encontrei um ser poderoso falante que disse ser pai de FeTuber, ele me deu poderes e algumas ordens!_  
 
 > _Você bebeu, **WorldPSI**?_  
@@ -271,7 +268,6 @@ Passada uma semana de todos estes fatos, **Draguigamer**, **RafaCraft2008** e **
 Os amigos estavam exaustos. Eles pousaram ali e, ao amanhecer, seguiram viagem.  
 Quando chegaram no centro, pararam para comprar comida. Mais à frente, eles viram uma placa indicando que **Elinar** estava a _10 minutos_. Tinham ido tão longe à toa. **RafaCraft2008** então desistiu e foi para casa. Com isso, os dois amigos estavam sem a bússola, já que ela pertencia ao que ficou para trás.  
 A viagem durou mais algumas horas e, ao chegarem à _barreira_, o limite de **Brothers**, encontraram uma cruz de cabeça para baixo cheia de flores. Então **Draguigamer** disse:  
-
 > _Acho que é aqui! Vamos cavar para baixo?_  
 
 > _Vamos!_  
@@ -281,7 +277,6 @@ Eles começaram a cavar e encontraram uma cripta bem fundo. Havia um cadáver co
 Os dois pegaram tudo dos baús. Havia vários minérios, joias e itens mágicos no local. Após saquearem tudo, retornaram para casa.  
 
 Quando **Draguigamer** chegou em **Lords**, **WorldPSI** viu sua armadura e os itens e o questionou sobre a origem daquilo:  
-
 > _Onde você conseguiu essa armadura?_  
 
 > _Em uma cripta ao norte!_  
@@ -322,7 +317,6 @@ Todos ficaram assustados ao ouvir isso, exceto **Mart21** que afirmava que tudo 
 **7º hora (14h)** - Nada de muito importante aconteceu aqui! Algumas pessoas já estavam perdendo as esperanças...  
 
 **8º hora (15h)** - **Adonai** retornou com o arsenal de **Draguigamer**. Um zumbi quebrou uma das barras de ferro e alguns monstros acabaram entrando pela barreira, mas logo foram derrotados. **WorldPSI** ordenou que tampassem a entrada com pedras. **Salun** então mormurou:  
-
 > _Você quer nos prender aqui?_  
 
 > _Claro que não! Estou apenas tentando nos manter seguros..._  
@@ -349,11 +343,9 @@ Todos ficaram assustados ao ouvir isso, exceto **Mart21** que afirmava que tudo 
 > _Peguem e façam assim como eu com vossos coelhos..._  
 
 **WorldPSI** rezou e matou o coelho que largou seu pé, e ele continuou a dizer:  
-
 > _Se todos os coelhos, assim como o meu largarem seus pés, então o sol havera de nascer novamente!_  
 
 E assim foi, todos os coelhos largaram seus pés. E **Salun** perguntou:  
-
 > _O que me garante que o sol vai nascer mesmo, e isto não foi apenas uma grande sorte?_  
 
 > _Diferente de mim e **Riuquen**, ninguem aqui viu FeTuber, mas já ouviram a voz dos céus e todas as vossas rezas foram respondidas! O que lhes leva a não acreditar nele?_  
@@ -382,14 +374,43 @@ Já que FeTuber não agia, nem respondia as rezas neste dia, **WorldPSI**, o Pap
 **Elinar** teve prejuizos estimados em _$ 1.593_ esmeraldas. Já o **Austria** estimou os danos em até _$ 820_ esmeraldas.  
 **WorldPSI** rezou a primeira missa do herdeiro, que deve acontecer um dia após o _Dia de todos os deuses_.
 
-E apareceram dois novos `Jogadores` em **Brothers**. Seus nomes eram **NineKrl** e **xmx_909**.
+E apareceram dois novos `Jogadores` em **Brothers**. Seus nomes eram **NineKrl** e **xmx_909**.  
+**NineKrl** seguiu ao sul do centro e começou obras, assim ele declarou que ali era as terras de **A favela**. Ele declarou também que ali não haveria nenhum imposto para os que ali morrassem. Alguns moradores de **Lords** e **Elinar** desejavam ir morar no local, mas se rejeitavam por não ser um local seguro. Tanto de criminosos, como de ameaças maiores como o _Dia de todos os deuses_.  
 
+Foi organizada uma reuniao global com todos os nobres de **Elinar**, chefes de estado e **WorldPSI**, o Papa. **NineKrl** ficou bravo por não ser convidado, isso deu-se por que **A favela** não era reconhecida internacionalmente. Então, ali durante a reunião foi mudada a moeda mundial de _Esmeralda_ para o _Dólar Brotheriano_, mas a _Esmeralda_ continuou em seu uso para salarios e comercio com aldeões. E então **manubiell**, o arqui-duque, que havia convocado a reunião comecou a discursar:  
 
+> _Olha, eu convoquei esta reunião para tratar de assuntos serissimos. Anteontem durante o _Dia de todos os deuses_, o senhor **Salun** teve um comportamento muito incompetente. E eu pensei muito antes..._
 
+> _Você deseja retirar minha coroa? Pensei que fossemos amigos!_  
+> — Interrompeu **Salun**  
 
+> _Não, eu quero sair de **Elinar** e erguter meu propio reino._  
+> — Concluiu **manubiell**  
 
+> _O que? Você não pode fazer isso! Afinal de contas você jurou fidelidade a mim... Terei de leva-lo a fogueira._   
+> — Continuou **Salun**
 
+> _Justamente por isso chamei todos eles... Sabia que você viria atrás de mim, então eu pessoa para vocês que votem se eu ficou em **Elinar** ou sou liberto.
+> — Sugeriu **manubiell**
 
+E assim, os nobres votaram e por maioria absoluta, escolheram a liberdade dele. Com isso um deles disse:  
+> _Se **Salun** permitiu que **Draguigamer** fosse para **Lords** ser **Rei Mago** por que **manubiell** não poderia ir?_
+
+Com isso **manubiell** foi banido de **Elinar** e ergueu o reino de **Avalon**. Os moradores de sua provincia foram com ele para seu reino. E era **FunMart02112**, o filosofo, **RafaCraft2008** e **MrFox**. **Avalon** prosperou e alcançou o poder de **Elinar** em três dias. Durante a semana **manubiell** ergueu um castelo, e **Mart21** adoeceu. **Draguigamer** foi ter com ele, conversaram e, ele não quis ir se confessar para **WorldPSI** nem pedir ajuda dos magos.   
+
+No ultimo dia da semana, ocorreu uma _Grande Missa_ em que **WorldPSI** pegou os aldeões zumbi que foram encontrados no _Dia de todos os deuses_, rezou, e eles foram curados por FeTuber. Mas em contra-partida, ao fim da missa, FeTuber foi tratar de outros assuntos. E este foi o ultima dia de **FunMart02112** (ou _Mart21_), em **Brothers**, pois estava podre de heresias. E com isso a doença que FeTuber havia colocado nele o matou.  
+Segundo as ordens de **WorldPSI** ele não recebeu nenhuma homenagem, para evitar a ira de FeTuber. **Salun** ao saber da morte de **Mart21** desceu para **Avalon**, a fim de discutir com **manubiell**:
+> _Esta feliz agora? Você trouxe ele de tão longe para morrer aqui!
+
+> _Ele ja estava doente **Salun**, ou ele morria aqui, ou lá!_  
+> — Respondeu **manubiell**  
+
+> _Pare de ser muleque **manubiell**_  
+> — Retrucou **manubiell**
+
+Após a troca de varios insultos. **Salun** declarou guerra contra **Avalon** e chamou o local de _reino mediocre_. **WorldPSI** fez quartro decretos globais de guerra e quem os desrespeitassem tera pena de morte por fogueira. Os decretos eram:  
+
+1. **Segurança de civis** -> _Durante as batalhas, ambos exercitos devem parar as lutas caso um civil, ou varios, precisem atravessar_
 
 
 
