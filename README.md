@@ -406,13 +406,11 @@ Segundo as ordens de **WorldPSI** ele não recebeu nenhuma homenagem, para evita
 > — Respondeu **manubiell**  
 
 > _Pare de ser muleque **manubiell**_  
-> — Retrucou **manubiell**
+> — Retrucou **manubiell**  
 
-Após a troca de varios insultos. **Salun** declarou guerra contra **Avalon** e chamou o local de _reino mediocre_. **WorldPSI** fez quartro decretos globais de guerra e quem os desrespeitassem tera pena de morte por fogueira. Os decretos eram:  
+Após a troca de varios insultos. **Salun** declarou guerra contra **Avalon** e chamou o local de _reino mediocre_. **WorldPSI** fez quartro decretos globais de guerra e quem os desrespeitassem tera pena de morte por fogueira. Os decretos eram de **Segurança de civis**, **Neutralidade emergencial**, **Nessecidade comum** e **Fogo Amigo**. Foi escrito em um livro e ambos reis, **Salun** e **manubiell** assinaram, desta forma **WorldPSI** pronunciou-se declarando iniciada a _Guerra_.  
 
-1. **Segurança de civis** -> _Durante as batalhas, ambos exercitos devem parar as lutas caso um civil, ou varios, precisem atravessar_
-
-
+Assim, terminou a segunda semana após o _Dia de todos os deuses_ e **WorldPSI** já estava se preparando para o proximo.  
 
 
 
