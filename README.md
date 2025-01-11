@@ -368,51 +368,62 @@ No outro dia o sol raiou e todos puderam ouvir outra vez a voz dos céus que diz
 
 > Há mais ou menos um mês, meu pai desceu a **Brothers** para falar pessoalmente com um mortal! Quando ele fez isso deixou uma fenda na _Barreira_ que separa os céus. Por isso algumas coisas mudarão, como o sol não nascer em um dia da terceira semana do mês. As demais coisas vocês descobrirão sozinhos com o passar dos dias. Até mais mortais...
 
-# Capitulo X - Caminhos Opostos
+# Capítulo X - Caminhos Opostos
 
-Já que FeTuber não agia, nem respondia as rezas neste dia, **WorldPSI**, o Papa, batisou este dia de _Dia de todos os deuses_.  
-**Elinar** teve prejuizos estimados em _$ 1.593_ esmeraldas. Já o **Austria** estimou os danos em até _$ 820_ esmeraldas.  
-**WorldPSI** rezou a primeira missa do herdeiro, que deve acontecer um dia após o _Dia de todos os deuses_.
+Já que FeTuber não agia, nem respondia às rezas neste dia, **WorldPSI**, o Papa, batizou este dia de _Dia de Todos os Deuses_.  
+**Elinar** teve prejuízos estimados em _$1.593_ esmeraldas. Já o **Austria** estimou os danos em até _$820_ esmeraldas.  
+**WorldPSI** rezou a primeira missa do herdeiro, que deveria acontecer um dia após o _Dia de Todos os Deuses_.
 
-E apareceram dois novos `Jogadores` em **Brothers**. Seus nomes eram **NineKrl** e **xmx_909**.  
-**NineKrl** seguiu ao sul do centro e começou obras, assim ele declarou que ali era as terras de **A favela**. Ele declarou também que ali não haveria nenhum imposto para os que ali morrassem. Alguns moradores de **Lords** e **Elinar** desejavam ir morar no local, mas se rejeitavam por não ser um local seguro. Tanto de criminosos, como de ameaças maiores como o _Dia de todos os deuses_.  
+Dois novos `Jogadores` apareceram em **Brothers**. Seus nomes eram **NineKrl** e **xmx_909**.  
+**NineKrl** seguiu ao sul do centro e começou obras. Assim, ele declarou que ali eram as terras de **A Favela**. Ele afirmou também que ali não haveria nenhum imposto para os que ali morassem. Alguns moradores de **Lords** e **Elinar** desejavam ir morar no local, mas se recusavam por não ser um local seguro — tanto devido a criminosos quanto a ameaças maiores, como o _Dia de Todos os Deuses_.  
 
-Foi organizada uma reuniao global com todos os nobres de **Elinar**, chefes de estado e **WorldPSI**, o Papa. **NineKrl** ficou bravo por não ser convidado, isso deu-se por que **A favela** não era reconhecida internacionalmente. Então, ali durante a reunião foi mudada a moeda mundial de _Esmeralda_ para o _Dólar Brotheriano_, mas a _Esmeralda_ continuou em seu uso para salarios e comercio com aldeões. E então **manubiell**, o arqui-duque, que havia convocado a reunião comecou a discursar:  
+Foi organizada uma reunião global com todos os nobres de **Elinar**, chefes de estado e **WorldPSI**, o Papa. **NineKrl** ficou bravo por não ser convidado, pois **A Favela** não era reconhecida internacionalmente. Durante a reunião, foi mudada a moeda mundial de _Esmeralda_ para o _Dólar Brotheriano_, mas a _Esmeralda_ continuou sendo usada para salários e comércio com aldeões. Então, **manubiell**, o arquiduque, que havia convocado a reunião, começou a discursar:  
 
-> _Olha, eu convoquei esta reunião para tratar de assuntos serissimos. Anteontem durante o _Dia de todos os deuses_, o senhor **Salun** teve um comportamento muito incompetente. E eu pensei muito antes..._
+> _Olha, eu convoquei esta reunião para tratar de assuntos seríssimos. Anteontem, durante o _Dia de Todos os Deuses_, o senhor **Salun** teve um comportamento muito incompetente. E eu pensei muito antes..._
 
-> _Você deseja retirar minha coroa? Pensei que fossemos amigos!_  
-> — Interrompeu **Salun**  
+> _Você deseja retirar minha coroa? Pensei que fôssemos amigos!_  
+> — Interrompeu **Salun**.  
 
-> _Não, eu quero sair de **Elinar** e erguter meu propio reino._  
-> — Concluiu **manubiell**  
+> _Não, eu quero sair de **Elinar** e erguer meu próprio reino._  
+> — Concluiu **manubiell**.  
 
-> _O que? Você não pode fazer isso! Afinal de contas você jurou fidelidade a mim... Terei de leva-lo a fogueira._   
-> — Continuou **Salun**
+> _O quê? Você não pode fazer isso! Afinal de contas, você jurou fidelidade a mim... Terei de levá-lo à fogueira._   
+> — Continuou **Salun**.  
 
-> _Justamente por isso chamei todos eles... Sabia que você viria atrás de mim, então eu pessoa para vocês que votem se eu ficou em **Elinar** ou sou liberto.
-> — Sugeriu **manubiell**
+> _Justamente por isso chamei todos eles... Sabia que você viria atrás de mim, então eu peço a vocês que votem: se fico em **Elinar** ou sou liberto._  
+> — Sugeriu **manubiell**.  
 
-E assim, os nobres votaram e por maioria absoluta, escolheram a liberdade dele. Com isso um deles disse:  
-> _Se **Salun** permitiu que **Draguigamer** fosse para **Lords** ser **Rei Mago** por que **manubiell** não poderia ir?_
+E assim, os nobres votaram e, por maioria absoluta, escolheram a liberdade dele. Com isso, um deles disse:  
 
-Com isso **manubiell** foi banido de **Elinar** e ergueu o reino de **Avalon**. Os moradores de sua provincia foram com ele para seu reino. E era **FunMart02112**, o filosofo, **RafaCraft2008** e **MrFox**. **Avalon** prosperou e alcançou o poder de **Elinar** em três dias. Durante a semana **manubiell** ergueu um castelo, e **Mart21** adoeceu. **Draguigamer** foi ter com ele, conversaram e, ele não quis ir se confessar para **WorldPSI** nem pedir ajuda dos magos.   
+> _Se **Salun** permitiu que **Draguigamer** fosse para **Lords** ser **Rei Mago**, por que **manubiell** não poderia ir?_  
 
-No ultimo dia da semana, ocorreu uma _Grande Missa_ em que **WorldPSI** pegou os aldeões zumbi que foram encontrados no _Dia de todos os deuses_, rezou, e eles foram curados por FeTuber. Mas em contra-partida, ao fim da missa, FeTuber foi tratar de outros assuntos. E este foi o ultima dia de **FunMart02112** (ou _Mart21_), em **Brothers**, pois estava podre de heresias. E com isso a doença que FeTuber havia colocado nele o matou.  
-Segundo as ordens de **WorldPSI** ele não recebeu nenhuma homenagem, para evitar a ira de FeTuber. **Salun** ao saber da morte de **Mart21** desceu para **Avalon**, a fim de discutir com **manubiell**:
-> _Esta feliz agora? Você trouxe ele de tão longe para morrer aqui!
+Com isso, **manubiell** foi banido de **Elinar** e ergueu o reino de **Avalon**. Os moradores de sua província foram com ele para seu reino: **FunMart02112**, o filósofo, **RafaCraft2008** e **MrFox**. **Avalon** prosperou e alcançou o poder de **Elinar** em três dias. Durante a semana, **manubiell** ergueu um castelo, e **Mart21** adoeceu. **Draguigamer** foi ter com ele, conversaram e, ainda assim, ele não quis se confessar para **WorldPSI**, nem pedir ajuda dos magos.   
 
-> _Ele ja estava doente **Salun**, ou ele morria aqui, ou lá!_  
-> — Respondeu **manubiell**  
+No último dia da semana, ocorreu uma _Grande Missa_ em que **WorldPSI** pegou os aldeões zumbis encontrados no _Dia de Todos os Deuses_, rezou, e eles foram curados por FeTuber. Mas, em contrapartida, ao fim da missa, FeTuber foi tratar de outros assuntos. E este foi o último dia de **FunMart02112** (ou _Mart21_) em **Brothers**, pois estava podre de heresias. Com isso, a doença que FeTuber havia colocado nele o matou.  
 
-> _Pare de ser muleque **manubiell**_  
-> — Retrucou **manubiell**  
+Segundo as ordens de **WorldPSI**, ele não recebeu nenhuma homenagem para evitar a ira de FeTuber. **Salun**, ao saber da morte de **Mart21**, desceu para **Avalon**, a fim de discutir com **manubiell**:  
 
-Após a troca de varios insultos. **Salun** declarou guerra contra **Avalon** e chamou o local de _reino mediocre_. **WorldPSI** fez quartro decretos globais de guerra e quem os desrespeitassem tera pena de morte por fogueira. Os decretos eram de **Segurança de civis**, **Neutralidade emergencial**, **Nessecidade comum** e **Fogo Amigo**. Foi escrito em um livro e ambos reis, **Salun** e **manubiell** assinaram, desta forma **WorldPSI** pronunciou-se declarando iniciada a _Guerra_.  
+> _Está feliz agora? Você trouxe ele de tão longe para morrer aqui!_  
 
-Assim, terminou a segunda semana após o _Dia de todos os deuses_ e **WorldPSI** já estava se preparando para o proximo.  
+> _Ele já estava doente, **Salun**. Ou ele morria aqui, ou lá!_  
+> — Respondeu **manubiell**.  
 
+> _Pare de ser moleque, **manubiell**!_  
+> — Retrucou **Salun**.  
 
+Após a troca de vários insultos, **Salun** declarou guerra contra **Avalon** e chamou o local de _reino medíocre_. **WorldPSI** fez quatro decretos globais de guerra, e quem os desrespeitasse teria pena de morte na fogueira. Os decretos eram: **Segurança de Civis**, **Neutralidade Emergencial**, **Necessidade Comum** e **Fogo Amigo**. Eles foram registrados em um livro, e ambos os reis, **Salun** e **manubiell**, assinaram. Desta forma, **WorldPSI** pronunciou-se declarando iniciada a _Guerra_.  
+
+Assim terminou a segunda semana após o _Dia de Todos os Deuses_, e **WorldPSI** já estava se preparando para o próximo.
+
+# Capitulo XI - A ferida
+
+**xm_909** juntou algum dinheiro e comprou uma ilha particular, esta que situava-se ao sul, proximo ao **Reino de Avalon**.  
+E nela começou a construção de sua casa.  
+
+**Avalon** era um reino situado em uma ilha, e a unica maneira de acessa-lo era por vias aereas e maritimas. O que os fornecia extrema vantagem sobre **Elinar** que possuia apenas veiculos terrestres.  
+
+O **xm_909** era cientista, e ele montou um laboratorio abaixo de sua casa. Ele sabia que FeTuber existia, mas não acreditava que Ele tinha todos os poderes a ele rogados por **WorldPSI** e os outros magos.   
+Em dois dias ele terminou seu laboratorio e seu primeiro projeto era um portal, este que foi construido em três dias. Quando ele estava completo, emitiu um forte raio na barreira celeste
 
 
 
