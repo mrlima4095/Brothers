@@ -1,4 +1,4 @@
-# Capítulo I - O Nascimento de FeTuber  
+![image](https://github.com/user-attachments/assets/6407451d-dde3-4d37-86b4-3c9af8c3598e)# Capítulo I - O Nascimento de FeTuber  
 
 E no vasto nada do universo, há milhares de anos atrás, existia apenas o Grande Axolotl.  
 Ele pairava os céus e alimentava-se de fragmentos do tempo, estrelas e tudo o que cruzava seu caminho nas extensões do vazio.  
@@ -329,7 +329,6 @@ Todos ficaram assustados ao ouvir isso, exceto **Mart21** que afirmava que tudo 
 > — Perguntou **WorldPSI**  
 
 **Salun** ordenou que prendessem **WorldPSI** mas seus homens não obedeceram. E então **manubiell** disse-lhes:  
-
 > _**Salun**, senhor.. Não estamos em **Elinar**, aqui não temos nenhuma autoridade!_  
 
 **WorldPSI** ordenou para que dois magos escoltassem **Salun** e o impedissem de fazer alguma besteira.  
@@ -339,7 +338,6 @@ Todos ficaram assustados ao ouvir isso, exceto **Mart21** que afirmava que tudo 
 **10º hora (17h)** - Um grupo de aldeões foram avistados e socorridos. Mas foi descoberto que eles estavam infectados com um vírus zumbi. E eles foram presos em uma sala aonde ficaria de quarentena para examina-los futuramente.  
 
 **11º hora (18h)** - Ocorreu a missa do coelho, em que **WorldPSI** trouxe ao templo _vinte e dois_ coelhos que haviam em **Lords**. Então ele deu _sete_ coelhos para os nobres de cada reino. E ficou com _um_ para si, e disse:  
-
 > _Peguem e façam assim como eu com vossos coelhos..._  
 
 **WorldPSI** rezou e matou o coelho que largou seu pé, e ele continuou a dizer:  
@@ -394,7 +392,6 @@ Foi organizada uma reunião global com todos os nobres de **Elinar**, chefes de 
 > — Sugeriu **manubiell**.  
 
 E assim, os nobres votaram e, por maioria absoluta, escolheram a liberdade dele. Com isso, um deles disse:  
-
 > _Se **Salun** permitiu que **Draguigamer** fosse para **Lords** ser **Rei Mago**, por que **manubiell** não poderia ir?_  
 
 Com isso, **manubiell** foi banido de **Elinar** e ergueu o reino de **Avalon**. Os moradores de sua província foram com ele para seu reino: **FunMart02112**, o filósofo, **RafaCraft2008** e **MrFox**. **Avalon** prosperou e alcançou o poder de **Elinar** em três dias. Durante a semana, **manubiell** ergueu um castelo, e **Mart21** adoeceu. **Draguigamer** foi ter com ele, conversaram e, ainda assim, ele não quis se confessar para **WorldPSI**, nem pedir ajuda dos magos.   
@@ -402,7 +399,6 @@ Com isso, **manubiell** foi banido de **Elinar** e ergueu o reino de **Avalon**.
 No último dia da semana, ocorreu uma _Grande Missa_ em que **WorldPSI** pegou os aldeões zumbis encontrados no _Dia de Todos os Deuses_, rezou, e eles foram curados por FeTuber. Mas, em contrapartida, ao fim da missa, FeTuber foi tratar de outros assuntos. E este foi o último dia de **FunMart02112** (ou _Mart21_) em **Brothers**, pois estava podre de heresias. Com isso, a doença que FeTuber havia colocado nele o matou.  
 
 Segundo as ordens de **WorldPSI**, ele não recebeu nenhuma homenagem para evitar a ira de FeTuber. **Salun**, ao saber da morte de **Mart21**, desceu para **Avalon**, a fim de discutir com **manubiell**:  
-
 > _Está feliz agora? Você trouxe ele de tão longe para morrer aqui!_  
 
 > _Ele já estava doente, **Salun**. Ou ele morria aqui, ou lá!_  
@@ -415,15 +411,73 @@ Após a troca de vários insultos, **Salun** declarou guerra contra **Avalon** e
 
 Assim terminou a segunda semana após o _Dia de Todos os Deuses_, e **WorldPSI** já estava se preparando para o próximo.
 
-# Capitulo XI - A ferida
+# Capítulo XI - A Ferida
 
-**xm_909** juntou algum dinheiro e comprou uma ilha particular, esta que situava-se ao sul, proximo ao **Reino de Avalon**.  
-E nela começou a construção de sua casa.  
+**xm_909** juntou algum dinheiro e comprou uma ilha particular, situada ao sul, próximo ao **Reino de Avalon**.  
+Nela, começou a construção de sua casa.  
 
-**Avalon** era um reino situado em uma ilha, e a unica maneira de acessa-lo era por vias aereas e maritimas. O que os fornecia extrema vantagem sobre **Elinar** que possuia apenas veiculos terrestres.  
+**Avalon** era um reino situado em uma ilha, e a única maneira de acessá-lo era por vias aéreas e marítimas, o que fornecia extrema vantagem sobre **Elinar**, que possuía apenas veículos terrestres.  
 
-O **xm_909** era cientista, e ele montou um laboratorio abaixo de sua casa. Ele sabia que FeTuber existia, mas não acreditava que Ele tinha todos os poderes a ele rogados por **WorldPSI** e os outros magos.   
-Em dois dias ele terminou seu laboratorio e seu primeiro projeto era um portal, este que foi construido em três dias. Quando ele estava completo, emitiu um forte raio na barreira celeste
+**xm_909** era cientista, e ele montou um laboratório abaixo de sua casa. Ele sabia que FeTuber existia, mas não acreditava que Ele possuía todos os poderes a Ele atribuídos por **WorldPSI** e os outros magos.  
+Em dois dias, ele terminou seu laboratório, e seu primeiro projeto era um portal. Este foi construído em três dias. Quando estava completo, emitiu um forte raio na barreira celeste. **Draguigamer**, que estava no centro, viu o raio e foi para **Lords** a fim de chamar **WorldPSI** e algumas tropas para averiguar o ocorrido.  
+Ao chegar no local, eles arrombaram a porta e invadiram a casa. Como **xm_909** estava no laboratório, a passagem secreta ficou aberta. Assim, eles encontraram **xm_909** e o conduziram preso.  
+
+Nos próximos três dias, a tensão entre **Avalon** e **Elinar** aumentou, e soldados se enfrentaram em três pontos.  
+**WorldPSI** permaneceu no laboratório estudando o portal, mas em hipótese alguma tentou ativá-lo, tanto por medo quanto por um instinto de autoproteção. Nesse mesmo dia, **xm_909** conseguiu escapar, derrotando os guardas com um ferro que havia escondido no bolso. Ele fugiu para sua casa.  
+Ao ouvir um barulho do lado de fora, **WorldPSI** se escondeu. Era **xm_909** retornando. Ele foi até o painel do portal e disse:  
+
+> _Vamos! Você precisa funcionar para eu fugir daqui..._  
+
+Após mexer em alguns botões e alavancas, um raio surgiu novamente, ferindo a barreira celeste. Assim, pela primeira vez em **Brothers Média**, choveu. Todos ficaram maravilhados com a beleza das águas. **Riuquen** sabia que não era possível chover novamente por causa da barreira. Então, chamou **Draguigamer**, e juntos foram procurar **xm_909** nas celas, mas descobriram que ele havia fugido.  
+
+> _Cadê **WorldPSI**?_  
+> — Perguntou **Riuquen**.  
+
+> _Eu não sei! Ele saiu cedo hoje..._  
+> — Respondeu **LariGHC**.  
+
+> _Sabe aonde ele foi?_  
+> — Perguntou **Draguigamer**.  
+
+> _Ele disse para mim que estava investigando um tal de portal._  
+> — Disse **Niko**.  
+
+O portal foi ativado, e **xm_909** entrou nele. Assim, a chuva transformou-se em tempestade, e raios caíram em vários locais. **Riuquen**, **Draguigamer**, **Niko** e **LariGHC** foram juntos atrás de **WorldPSI** no laboratório. Quando chegaram lá, a porta estava fechada, e **Draguigamer** gritou:  
+
+> _Seja lá quem esteja aí, abra a porta agora!_  
+
+**WorldPSI**, que estava saindo de seu esconderijo, respondeu em voz alta:  
+
+> _Ele entrou no portal. Estou indo abrir..._  
+
+Todos ficaram felizes por encontrar **WorldPSI** e por ele estar bem. **LariGHC**, à frente deles, pegou na maçaneta e disse, rindo:  
+
+> _Vejam, está aberta!_  
+
+Quando **WorldPSI** estava saindo do esconderijo, **xm_909** foi jogado para fora do portal com força, causando uma grande explosão. O laboratório e a casa foram totalmente destruídos. **LariGHC**, que estava à frente, bem na porta, sofreu grande parte do dano, ficando muito ferida. **WorldPSI** correu até ela e, ao vê-la naquela condição, gritou:  
+
+> _Vamos, amor, preciso te levar rápido para um médico!_  
+
+> _Não vamos chegar a tempo... Eu vivi ao seu lado, e isso, para mim, foi suficiente._  
+> — Disse **LariGHC**.  
+
+> _Não!!!_  
+> — Interrompeu **WorldPSI**.  
+
+> _Cuide bem de nosso filho... Eu te amo, **WorldPSI**!_  
+> — Terminou **LariGHC**.  
+
+Antes que ela desse seu último suspiro, ele a abraçou. Então, um raio caiu sobre eles, impedindo os outros de visualizarem o que ocorreu. Quando o raio se dissipou, o corpo de **LariGHC** já não estava mais ali.  
+
+**WorldPSI** foi até **xm_909** e percebeu que ele não estava morto, mas gravemente ferido e inconsciente. Chamou-o de _maldito_, pegou sua espada e, na frente de todos, o decapitou, levando a cabeça dele de volta para **Lords**.  
+
+Por causa da guerra, os nobres ergueram uma vila próxima ao centro, onde não pagavam tributos e eram protegidos pela _Guarda Particular_. **NineKrl** pronunciou-se, dizendo que estavam copiando sua ideia e que aquilo não passava de uma _“favela de ricos”_. Ele convidou **WorldPSI** para ajudá-lo a construir uma pequena represa e uma ponte. **WorldPSI** pediu que a ponte fosse nomeada _Ponte de LariGHC_, em homenagem à sua esposa, e assim foi feito.  
+
+[...]  
+
+Então, **WorldPSI** rezou uma grande missa, na qual vários pecados foram confessados, e forças foram pedidas a FeTuber para aguentarem mais um _Dia de Todos os Deuses_.
+
+# Capitulo XII - FeTuber x Zarques
 
 
 
