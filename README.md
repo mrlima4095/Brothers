@@ -443,19 +443,15 @@ Após mexer em alguns botões e alavancas, um raio surgiu novamente, ferindo a b
 > — Disse **Niko**.  
 
 O portal foi ativado, e **xm_909** entrou nele. Assim, a chuva transformou-se em tempestade, e raios caíram em vários locais. **Riuquen**, **Draguigamer**, **Niko** e **LariGHC** foram juntos atrás de **WorldPSI** no laboratório. Quando chegaram lá, a porta estava fechada, e **Draguigamer** gritou:  
-
 > _Seja lá quem esteja aí, abra a porta agora!_  
 
 **WorldPSI**, que estava saindo de seu esconderijo, respondeu em voz alta:  
-
 > _Ele entrou no portal. Estou indo abrir..._  
 
 Todos ficaram felizes por encontrar **WorldPSI** e por ele estar bem. **LariGHC**, à frente deles, pegou na maçaneta e disse, rindo:  
-
 > _Vejam, está aberta!_  
 
 Quando **WorldPSI** estava saindo do esconderijo, **xm_909** foi jogado para fora do portal com força, causando uma grande explosão. O laboratório e a casa foram totalmente destruídos. **LariGHC**, que estava à frente, bem na porta, sofreu grande parte do dano, ficando muito ferida. **WorldPSI** correu até ela e, ao vê-la naquela condição, gritou:  
-
 > _Vamos, amor, preciso te levar rápido para um médico!_  
 
 > _Não vamos chegar a tempo... Eu vivi ao seu lado, e isso, para mim, foi suficiente._  
@@ -475,9 +471,28 @@ Por causa da guerra, os nobres ergueram uma vila próxima ao centro, onde não p
 
 [...]  
 
-Então, **WorldPSI** rezou uma grande missa, na qual vários pecados foram confessados, e forças foram pedidas a FeTuber para aguentarem mais um _Dia de Todos os Deuses_.
+Então, **WorldPSI** rezou uma grande missa, na qual vários pecados foram confessados, e forças foram pedidas a FeTuber para aguentarem mais um _Dia de Todos os Deuses_.  
 
 # Capitulo XII - FeTuber x Zarques
+
+No primeiro dia da semana o sol nasceu normalmente. Os moradores de **Austria** foram para a capital (**Elinar**) já se preparando.  
+**Draguigamer** revisou o treinamento com os magos. **WorldPSI** verificou se os soldados estavam preparados.  
+Segundo o decreto **Avalon** e **Elinar** pararam os conflitos e enviaram cargas de alimentos e armas para **Lords**.  
+
+No segundo dia da semana tinha tudo para ser normal, mas o portal de **xm_909** se abriu e algo que não é deste mundo cruzou para **Brothers**.  
+Ele seguiu para o norte e chegou no centro, aonde encontrou **Niko** e perguntou-lhes:  
+> _Quem é você mortal? Onde estou?_
+
+> _Eu sou o **Niko**, e estamos no centro!_
+> — Respondeu **Niko**
+
+> _Referia-me ao nome da dimensão..._
+> — Ele continuou
+
+> _Ata... Acho que é **Brothers**!_
+> — Respondeu **Niko**
+
+
 
 
 
