@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/6407451d-dde3-4d37-86b4-3c9af8c3598e)# Capítulo I - O Nascimento de FeTuber  
+# Capítulo I - O Nascimento de FeTuber  
 
 E no vasto nada do universo, há milhares de anos atrás, existia apenas o Grande Axolotl.  
 Ele pairava os céus e alimentava-se de fragmentos do tempo, estrelas e tudo o que cruzava seu caminho nas extensões do vazio.  
