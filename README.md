@@ -481,16 +481,97 @@ Segundo o decreto **Avalon** e **Elinar** pararam os conflitos e enviaram cargas
 
 No segundo dia da semana tinha tudo para ser normal, mas o portal de **xm_909** se abriu e algo que não é deste mundo cruzou para **Brothers**.  
 Ele seguiu para o norte e chegou no centro, aonde encontrou **Niko** e perguntou-lhes:  
-> _Quem é você mortal? Onde estou?_
+> _Quem é você mortal? Onde estou?_  
 
-> _Eu sou o **Niko**, e estamos no centro!_
-> — Respondeu **Niko**
+> _Eu sou o **Niko**, e estamos no centro!_  
+> — Respondeu **Niko**  
 
-> _Referia-me ao nome da dimensão..._
-> — Ele continuou
+> _Referia-me ao nome da dimensão..._  
+> — Ele continuou  
 
-> _Ata... Acho que é **Brothers**!_
-> — Respondeu **Niko**
+> _Ata... Acho que é **Brothers**!_  
+> — Respondeu **Niko**  
+
+> _**Brothers**? Nunca ouvi falar... Ah, e outra coisa. Onde estam os nobres?_  
+> — Ele perguntou  
+
+> _Ao norte, todos estam no reino de **Lords** se preparando para o Dia de todos os deuses._  
+> — Novamente respondeu **Niko**  
+
+> _Obrigado mortal! Lembrarei de ti..._  
+> — Ele terminou
+
+**Niko** ficou um pouco assustado, mas não se importou muito. Ele foi para casa pelo continente para evitar encontrar aquele cara denovo.  
+Após ele chegar, alguns minutos depois o estranho tambem chegou. E ele foi até o templo e subiu no altar. **WorldPSI** que estava no segundo andar, viu ele no altar e gritou:  
+> _Você não tem permissão para subir no altar! Por favor desça imediatamente!_  
+
+> _Ora, pra quem então é esse altar? Deveria estar feliz de ter um deus em sua frente..._  
+> — Disse ele  
+
+> _Um herege, olha só... O unico deus aqui é FeTuber!!! Quem é você?_  
+> — Perguntou **WorldPSI**  
+
+> _Eu sou ZarquesMero!_  
+
+> _Grandes bostas! Aqui você não é nada, não sei de onde veio, mas pode retonar para lá..._  
+> — Respondeu **WorldPSI**  
+
+**ZarquesMero** voou até **WorldPSI** e em sua frente disse-lhes:  
+> _Você vai pagar por cada palavra... Eu vou te matar **WorldPSI**!!!_  
+
+> _Eu nunca te disse meu nome herege! Como sabe?!_  
+> — Terminou **WorldPSI**  
+
+Ele virou-se e foi embora. **WorldPSI** rezou por **Zarques**, afim de que FeTuber lhes mostrasse mais sobre ele, mas esta reza não foi respondida e causou um profundo desconforto nele.  
+
+O terceiro dia da semana, o sol ainda nasceu. **Zarques** nao foi localizado, mas **Draguigamer** descobriu que ele chegou em **Brothers** por meio do portal. Os nobres se reuniram em um comite de emergencia, foi questionado se realmente aconteceria o _Dia de todos os deuses_ novamente. E **WorldPSI** os contou sobre a aparição de **Zarques**.  
+
+No quinto dia da sema, todas as casas de **Lords** estavam com uma placa colocada em sua porta que dizia:  
+
+> -=-=-=-=-=-=-=-=-=-  
+> Gloria a Laboria  
+> Gloria a Ele  
+> -=-=-=-=-=-=-=-=-=-  
+
+Juntamente com um cranio de esqueleto que possuia o nome do morador da casa. Só não havia a placa e o cranio na casa de **Niko**.  
+**WorldPSI** acreditava que **Laboria** era de onde **Zarques** havia vindo. E o pronome _“ele”_ na terceira linha se referia ao mesmo, já que anteriormente ele havia identificado-se como um deus. Isto preocupou o _Papa_, por que um mundo só pode ter um deus, e **Brothers** é pequena demais para dois deuses.  
+
+[...]  
+
+No quinto dia da semana foi o _Dia de todos os deuses_. Como a maioria da população já estava em **Lords** houve pouca preocupação com o trafego externo.  
+Tudo corria como o planejado, até a quarta hora que começou uma forte chuva e o raio do portal foi emitido e ele se abriu novamente. E dele saiu varios fantasmas que se espalharam pelos ceus. Cavaleiros esqueletos e zumbis gigantes tambem cruzaram para **Brothers** amando de **Zarques**. Aqueles seres cruzavam facilmente a muralha, e os fantasmas atacavam por cima, neste ritmo todos morreriam logo. **Draguigamer**, o _Rei Mago_ então ativou a _Tecnica Final: Barreira da Vida_, que impedia que as ameaças adentrassem o local, porem isto tambem vinculou sua alma as muralhas para todos sempre.  
+Como já era o segundo _Dia de todos os deuses_, a maioria seguia suas vidas e negocios normalmente, enquanto esperava o final daquele dia.  
+**Zarques** e seu exercito sabiam que não poderiam entrar, então foram para os outros reinos a procura de pessoas que não haviam ido para **Lords** refugiar-se. E acabaram encontrando **NineKrl** e um dos fantasmas adentrou seu corpo e tomou o controle dele.  
+
+[...]  
+
+A tarde chegou e todos foram durmir, mas ao amanhecer ainda chovia e era tempestade, **Zarques** e seu exercito ainda estavam lá. Ao ver isso, **WorldPSI** subiu em uma das torres da muralha e disse:  
+> _Por que você não desapareceu? O Dia de todos os deuses já acabou..._  
+
+> _Eu não sou daqui, muito menos fruto de um dia mediocre. Eu jamais sumirei por causa da luz do sol!_  
+> — Respondeu **Zarques**
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
