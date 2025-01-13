@@ -550,35 +550,3 @@ A tarde chegou e todos foram durmir, mas ao amanhecer ainda chovia e era tempest
 
 > _Eu não sou daqui, muito menos fruto de um dia mediocre. Eu jamais sumirei por causa da luz do sol!_  
 > — Respondeu **Zarques**
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
