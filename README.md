@@ -473,80 +473,141 @@ Por causa da guerra, os nobres ergueram uma vila próxima ao centro, onde não p
 
 Então, **WorldPSI** rezou uma grande missa, na qual vários pecados foram confessados, e forças foram pedidas a FeTuber para aguentarem mais um _Dia de Todos os Deuses_.  
 
-# Capitulo XII - FeTuber x Zarques
+# Capítulo XII - FeTuber x Zarques
 
-No primeiro dia da semana o sol nasceu normalmente. Os moradores de **Austria** foram para a capital (**Elinar**) já se preparando.  
+No primeiro dia da semana, o sol nasceu normalmente. Os moradores de **Austria** foram para a capital (**Elinar**), já se preparando.  
 **Draguigamer** revisou o treinamento com os magos. **WorldPSI** verificou se os soldados estavam preparados.  
-Segundo o decreto **Avalon** e **Elinar** pararam os conflitos e enviaram cargas de alimentos e armas para **Lords**.  
+Segundo o decreto, **Avalon** e **Elinar** pararam os conflitos e enviaram cargas de alimentos e armas para **Lords**.  
 
-No segundo dia da semana tinha tudo para ser normal, mas o portal de **xm_909** se abriu e algo que não é deste mundo cruzou para **Brothers**.  
-Ele seguiu para o norte e chegou no centro, aonde encontrou **Niko** e perguntou-lhes:  
-> _Quem é você mortal? Onde estou?_  
+No segundo dia da semana, tudo parecia normal, mas o portal de **xm_909** se abriu, e algo que não era deste mundo cruzou para **Brothers**.  
+Ele seguiu para o norte e chegou ao centro, onde encontrou **Niko** e perguntou-lhe:  
+
+> _Quem é você, mortal? Onde estou?_  
 
 > _Eu sou o **Niko**, e estamos no centro!_  
 > — Respondeu **Niko**  
 
 > _Referia-me ao nome da dimensão..._  
-> — Ele continuou  
+> — Continuou o estranho.  
 
-> _Ata... Acho que é **Brothers**!_  
+> _Ah... Acho que é **Brothers**!_  
 > — Respondeu **Niko**  
 
-> _**Brothers**? Nunca ouvi falar... Ah, e outra coisa. Onde estam os nobres?_  
-> — Ele perguntou  
+> _**Brothers**? Nunca ouvi falar... Ah, e outra coisa. Onde estão os nobres?_  
+> — Perguntou o estranho.  
 
-> _Ao norte, todos estam no reino de **Lords** se preparando para o Dia de todos os deuses._  
+> _Ao norte, todos estão no reino de **Lords**, se preparando para o Dia de todos os deuses._  
 > — Novamente respondeu **Niko**  
 
-> _Obrigado mortal! Lembrarei de ti..._  
-> — Ele terminou
+> _Obrigado, mortal! Lembrarei de ti..._  
+> — Ele terminou.
 
-**Niko** ficou um pouco assustado, mas não se importou muito. Ele foi para casa pelo continente para evitar encontrar aquele cara denovo.  
-Após ele chegar, alguns minutos depois o estranho tambem chegou. E ele foi até o templo e subiu no altar. **WorldPSI** que estava no segundo andar, viu ele no altar e gritou:  
-> _Você não tem permissão para subir no altar! Por favor desça imediatamente!_  
+**Niko** ficou um pouco assustado, mas não se importou muito. Ele foi para casa pelo continente para evitar encontrar aquele homem novamente.  
+Após chegar em casa, alguns minutos depois, o estranho também chegou. Ele foi até o templo e subiu no altar. **WorldPSI**, que estava no segundo andar, viu-o no altar e gritou:  
+
+> _Você não tem permissão para subir no altar! Por favor, desça imediatamente!_  
 
 > _Ora, pra quem então é esse altar? Deveria estar feliz de ter um deus em sua frente..._  
-> — Disse ele  
+> — Disse o estranho  
 
-> _Um herege, olha só... O unico deus aqui é FeTuber!!! Quem é você?_  
+> _Um herege, olha só... O único deus aqui é FeTuber!!! Quem é você?_  
 > — Perguntou **WorldPSI**  
 
 > _Eu sou ZarquesMero!_  
 
-> _Grandes bostas! Aqui você não é nada, não sei de onde veio, mas pode retonar para lá..._  
+> _Grandes bostas! Aqui você não é nada, não sei de onde veio, mas pode retornar para lá..._  
 > — Respondeu **WorldPSI**  
 
-**ZarquesMero** voou até **WorldPSI** e em sua frente disse-lhes:  
-> _Você vai pagar por cada palavra... Eu vou te matar **WorldPSI**!!!_  
+**ZarquesMero** voou até **WorldPSI** e, em sua frente, disse:  
 
-> _Eu nunca te disse meu nome herege! Como sabe?!_  
+> _Você vai pagar por cada palavra... Eu vou te matar, **WorldPSI**!!!_  
+
+> _Eu nunca te disse meu nome, herege! Como sabe?!_  
 > — Terminou **WorldPSI**  
 
-Ele virou-se e foi embora. **WorldPSI** rezou por **Zarques**, afim de que FeTuber lhes mostrasse mais sobre ele, mas esta reza não foi respondida e causou um profundo desconforto nele.  
+Ele virou-se e foi embora. **WorldPSI** rezou por **Zarques**, a fim de que FeTuber lhe mostrasse mais sobre ele, mas esta reza não foi respondida, o que causou um profundo desconforto nele.  
 
-O terceiro dia da semana, o sol ainda nasceu. **Zarques** nao foi localizado, mas **Draguigamer** descobriu que ele chegou em **Brothers** por meio do portal. Os nobres se reuniram em um comite de emergencia, foi questionado se realmente aconteceria o _Dia de todos os deuses_ novamente. E **WorldPSI** os contou sobre a aparição de **Zarques**.  
+No terceiro dia da semana, o sol ainda nasceu. **Zarques** não foi localizado, mas **Draguigamer** descobriu que ele chegou em **Brothers** por meio do portal. Os nobres se reuniram em um comitê de emergência e foi questionado se realmente aconteceria o _Dia de todos os deuses_ novamente. **WorldPSI** então contou sobre a aparição de **Zarques**.  
 
-No quinto dia da sema, todas as casas de **Lords** estavam com uma placa colocada em sua porta que dizia:  
+No quinto dia da semana, todas as casas de **Lords** estavam com uma placa colocada em sua porta que dizia:  
 
 > -=-=-=-=-=-=-=-=-=-  
-> Gloria a Laboria  
-> Gloria a Ele  
+> Glória a Laboria  
+> Glória a Ele  
 > -=-=-=-=-=-=-=-=-=-  
 
-Juntamente com um cranio de esqueleto que possuia o nome do morador da casa. Só não havia a placa e o cranio na casa de **Niko**.  
-**WorldPSI** acreditava que **Laboria** era de onde **Zarques** havia vindo. E o pronome _“ele”_ na terceira linha se referia ao mesmo, já que anteriormente ele havia identificado-se como um deus. Isto preocupou o _Papa_, por que um mundo só pode ter um deus, e **Brothers** é pequena demais para dois deuses.  
+Juntamente com um crânio de esqueleto que possuía o nome do morador da casa. Só não havia a placa e o crânio na casa de **Niko**.  
+**WorldPSI** acreditava que **Laboria** era de onde **Zarques** havia vindo, e o pronome _"ele"_ na terceira linha se referia ao mesmo, já que anteriormente ele havia se identificado como um deus. Isso preocupou o _Papa_, pois um mundo só pode ter um deus, e **Brothers** era pequeno demais para dois deuses.  
 
 [...]  
 
-No quinto dia da semana foi o _Dia de todos os deuses_. Como a maioria da população já estava em **Lords** houve pouca preocupação com o trafego externo.  
-Tudo corria como o planejado, até a quarta hora que começou uma forte chuva e o raio do portal foi emitido e ele se abriu novamente. E dele saiu varios fantasmas que se espalharam pelos ceus. Cavaleiros esqueletos e zumbis gigantes tambem cruzaram para **Brothers** amando de **Zarques**. Aqueles seres cruzavam facilmente a muralha, e os fantasmas atacavam por cima, neste ritmo todos morreriam logo. **Draguigamer**, o _Rei Mago_ então ativou a _Tecnica Final: Barreira da Vida_, que impedia que as ameaças adentrassem o local, porem isto tambem vinculou sua alma as muralhas para todos sempre.  
-Como já era o segundo _Dia de todos os deuses_, a maioria seguia suas vidas e negocios normalmente, enquanto esperava o final daquele dia.  
-**Zarques** e seu exercito sabiam que não poderiam entrar, então foram para os outros reinos a procura de pessoas que não haviam ido para **Lords** refugiar-se. E acabaram encontrando **NineKrl** e um dos fantasmas adentrou seu corpo e tomou o controle dele.  
+No quinto dia da semana, foi o _Dia de todos os deuses_. Como a maioria da população já estava em **Lords**, houve pouca preocupação com o tráfego externo.  
+Tudo corria como o planejado, até a quarta hora, quando começou uma forte chuva e o raio do portal foi emitido, abrindo-o novamente. Dele saíram vários fantasmas que se espalharam pelos céus. Cavaleiros esqueletos e zumbis gigantes também cruzaram para **Brothers**, armados por **Zarques**. Aqueles seres cruzavam facilmente a muralha, e os fantasmas atacavam por cima. Neste ritmo, todos morreriam logo. **Draguigamer**, o _Rei Mago_, então ativou a _Técnica Final: Barreira da Vida_, que impedia que as ameaças adentrassem o local. Porém, isso também vinculou sua alma às muralhas para todos sempre.  
+Como já era o segundo _Dia de todos os deuses_, a maioria seguia suas vidas e negócios normalmente, enquanto aguardavam o final daquele dia.  
+**Zarques** e seu exército sabiam que não poderiam entrar, então foram para os outros reinos à procura de pessoas que não haviam ido para **Lords** refugiar-se. Eles acabaram encontrando **NineKrl**, e um dos fantasmas adentrou seu corpo, tomando o controle dele.  
 
 [...]  
 
-A tarde chegou e todos foram durmir, mas ao amanhecer ainda chovia e era tempestade, **Zarques** e seu exercito ainda estavam lá. Ao ver isso, **WorldPSI** subiu em uma das torres da muralha e disse:  
+A tarde chegou, e todos foram dormir, mas ao amanhecer ainda chovia e a tempestade continuava. **Zarques** e seu exército ainda estavam lá. Ao ver isso, **WorldPSI** subiu em uma das torres da muralha e disse:  
+
 > _Por que você não desapareceu? O Dia de todos os deuses já acabou..._  
 
-> _Eu não sou daqui, muito menos fruto de um dia mediocre. Eu jamais sumirei por causa da luz do sol!_  
-> — Respondeu **Zarques**
+> _Eu não sou daqui, muito menos fruto de um dia medíocre. Eu jamais sumirei por causa da luz do sol!_  
+> — Respondeu **Zarques**  
+
+> _O que você quer, Zarques?_  
+> — Perguntou **WorldPSI**  
+
+> _Eu quero dominar **Brothers**._  
+> — Respondeu **Zarques**  
+
+> _Só por cima do meu cadáver! E se encostar um dedo em mim, FeTuber vem atrás de você!_  
+> — Afirmou **WorldPSI**  
+
+**Draguigamer** ordenou que **Adonai** e outros dos soldados mais fortes atacassem sem piedade para testar a força dos inimigos. Eles então saíram da barreira, e **Adonai** atacou um dos cavaleiros esqueletos, mas eles não revidaram.  
+**Dragui** e **WorldPSI** estranharam, e um dos fantasmas desceu até **Adonai** e o possuiu. Ele parou, virou-se e avançou contra os outros soldados aliados. Então **Salun** gritou:  
+
+> _Pare, **Adonai**! Você está louco? Eles são aliados..._  
+
+> _Salun, ele foi possuído pelo fantasma!_  
+> — Respondeu **WorldPSI**  
+
+> _Você é "sabido"..._  
+> — Disse **Zarques**  
+
+Enquanto falavam, um soldado foi morto, e os outros também foram possuídos pelos fantasmas.  
+Os nobres já estavam reunidos e perguntaram se seria possível expulsar os fantasmas dos soldados. Então **WorldPSI** respondeu:  
+
+> _FeTuber pode fazer tudo a quem reza com vontade a Ele..._  
+
+> _Se alguém sair lá fora, será possuído! Quem vai lá rezar?_  
+> — Perguntou **Dragui**  
+
+> _Você! Sua armadura lhes protegerá._  
+> — Respondeu **WorldPSI**  
+
+**Draguigamer** pegou o livro da **Feologia** e um crucifixo e foi para o portão. Os soldados curvaram-se a ele, e **Dragui** saiu das muralhas. Os fantasmas desceram, mas quando o atacavam, eram absorvidos pela armadura, que os usava para regenerar a vida dele. **Zarques** então disse aos fantasmas:  
+
+> _Parem, otários! Não veem que ele é imune aos seus ataques?_  
+
+**Dragui** aproximou-se de **Adonai** e dos soldados possuídos, mas eles fugiram dele. Então ele perguntou:  
+
+> _Por que vocês fogem, seus covardes? Têm medo da **Feologia** e do crucifixo?_  
+
+> _Ninguém aqui tem medo de nada! A **Feologia** é apenas um monte de páginas velhas com uma história de merda!_  
+> — Respondeu **Zarques**  
+
+> _Por que dizes isso? Aqui está escrito que FeTuber não retornaria a **Brothers** por causa da barreira, esta que não existe mais... então, por essas palavras, FeTuber descerá aqui e te mandará para a cova!_  
+> — Afirmou **Dragui**  
+
+**WorldPSI** sussurrou no _tell_ para **Dragui**: _Mas que merda você fez? Sabe quais as chances de FeTuber descer aqui novamente?_ Quando **Dragui** terminou de rezar, os fantasmas saíram dos soldados e eles recobraram suas próprias consciências, retornando rapidamente para dentro das muralhas de **Lords**.  
+
+> _Engraçadinho... Agora eu fico aqui para sempre!_  
+> — Gritou **Zarques**  
+
+Em meio a trovões, ouviu-se uma voz dos céus que dizia:  
+
+> _Já vai arrumando tuas malas, **Zarques**! Eu estou descendo..._  
+
+Todos ficaram com efeito de cegueira e ouviram-se estrondos. Quando o efeito passou, todos puderam ver **FeTuber** ali, com a _Lendária Relíquia Suprema_ e o _Olho da Criação_.
+
