@@ -676,9 +676,9 @@ Da fenda da _Barreira_ desceu um dragão e **Zarques** o montou e ordenou que **
 > 
 > _"Eu sou o mais velho daqui, já vi varias vezes o poder de FeTuber. Porque ele não pega e acaba logo de uma vez com **Kotah** e **Zarques**?" - **WorldPSI**, O Papa._  
 > 
-> _Meu pai é foda mesmo, ele esta batalhando lá fora sem nenhuma armadura. Ele chamou FeTuber de amigo..." - **NikoDasPanquecas**, Cardeal por FeTuber._  
+> _"Meu pai é foda mesmo, ele esta batalhando lá fora sem nenhuma armadura. Ele chamou FeTuber de amigo..." - **NikoDasPanquecas**, Cardeal por FeTuber._  
 > 
-> _FeTuber retornou!" - **Riuquen**, Líder da Guarda Brotheriana._  
+> _"FeTuber retornou!" - **Riuquen**, Líder da Guarda Brotheriana._  
 > 
 > _"Pra falar a verdade eu nunca acreditei em FeTuber, mas agoraq eu vi com meus propios olhos! Queria que **mart21** estivesse aqui para ve-lo tambem..." - **Salun**, Imperador de **Elinar**_  
 > 
@@ -687,13 +687,48 @@ Da fenda da _Barreira_ desceu um dragão e **Zarques** o montou e ordenou que **
 > _"Eu agradeço por FeTuber me permitir viver..." - **manubiell**, Rei de **Avalon**_  
 >
 > 
-> _Quando **LariGHC** estava prestes a morrer, eu a abraçei e fiz cair aquele raio para eles nao perceberem que eu absorvi a alma dela. Agora sempre tenho sonhos com ela e ela me diz as coisas que estao prestes a acontecer. As vezes me vejo conversando com ela até mesmo acordado..._
+> _Quando **LariGHC** estava prestes a morrer, eu a abraçei e fiz cair aquele raio para eles nao perceberem que eu absorvi a alma dela. Agora sempre tenho sonhos com ela e ela me diz as coisas que estao prestes a acontecer. As vezes me vejo conversando com ela até mesmo acordado..._  
 
 A missa acabou e todos foram para proximo ao portao da entrada de **Lords**, aonde ao lado de fora estava ocorrendo a batalha. Eles diziam que **Brothers** nao poderia acabar assim e que a vida de todos eles estavam nas mãos dos três.  
 FeTuber equipou a  _Lendária Relíquia Suprema_ e foi para cima de Kotah, que desviou do ataque e a reliquia deixou uma grande marca de fogo e areia das almas nos proximos 100 km. **Kotah** então disse:  
-> _Nossa... Que merda é essa?_
+> _Nossa... Que merda é essa?_  
 
-Ele avançou em cima de FeTuber e enviou um ataque com toda sua força. FeTuber usou a reliquia para se defender, porem o ataque foi tão forte que a despedaçou em nove reliquias menores, que são:
+Ele avançou em cima de FeTuber e enviou um ataque com toda sua força. FeTuber usou a reliquia para se defender, porem o ataque foi tão forte que a despedaçou em oito reliquias menores, que são:  
 
-1. **
+1. **Lâmina do Chaos**
+2. **Destruidora de mundos**
+3. **Tridente de Saturno**
+4. **Asas do Anjo egoista**
+5. **A Besta**
+6. **O Escudo**
+7. **A Trombeta**
+8. **Diario de FeTuber**
 
+Elas voaram e foram pegas por pessoas que estavam em **Lords**. **Kotah** então rindo disse:  
+> _Bem... Parece que você foi desarmado! Essa é a parte que você se render e eu lhes deixo viver mais um pouco._
+
+FeTuber olhou para baixo, suspirou e disse:  
+> _Ah! Eu ia rezar mais esqueci que eu sou quem responde as rezas!_  
+
+Ele fez surgir uma grande arena e chamou **Kotah** para um combate até a morte. **WorldPSI** e **Draguigamer** subiram para o andar de cima da arena e o **Warden** soltou um ataque super-sonico em FeTuber, mas ele absorveu o ataque e devolveu o golpe arremessando **Kotah** e seu demonio para longe. Então FeTuber disse:  
+> _Já que você falou que eu tenho chance de me render, eu tambem vou dar essa chance para você! Aproveite-a e volte para onde veio..._  
+
+> _Você que deveria fugir!_  
+> — Respondeu **Kotah**  
+
+FeTuber riu.  
+**Kotah** fez aparecer alguns demonios para atacar FeTuber. **Dragui** desceu para ajudar FeTuber, e vendo sua atitude **World** desceu tambem. Com isso FeTuber pegou o _Olho da Criação_ e gerou uma _Espada de Diamante_, indo para o combate direto.  
+
+Após todos os demonios serem derrotados, a arena extremesseu e algo começou a emergir das aguas por tras de **Lords**. Com o passar de duas horas. O que estava subindo pode ser visto por completo, e percebeu-se que era um...  
+
+> _Não é possivel..._  
+> — Gritou **Draguigamer**  
+
+**Riuquen** saiu correndo de **Lords** para a arena aonde FeTuber e **Kotah** estavam batalhando com o _Diario de **euottoo**_ e disse:  
+> _**Dragui**... **World**! Apareceu uma nova pagina no diario, ela ta falando sobre o mostro que ta aparecendo!_  
+
+**Riuquen** fez um "_no-clip_" com eles três, levando-os para o andar de cima do templo e **Dragui** perguntou-lhes:  
+> _Como viemos parar aqui?_  
+
+> _Aprendi uns truques..._  
+> — Respondeu **Riuquen**  
