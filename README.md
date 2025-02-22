@@ -609,5 +609,69 @@ Em meio a trovões, ouviu-se uma voz dos céus que dizia:
 
 > _Já vai arrumando tuas malas, **Zarques**! Eu estou descendo..._  
 
-Todos ficaram com efeito de cegueira e ouviram-se estrondos. Quando o efeito passou, todos puderam ver **FeTuber** ali, com a _Lendária Relíquia Suprema_ e o _Olho da Criação_.
+Todos ficaram com efeito de cegueira e ouviram-se estrondos. Quando o efeito passou, todos puderam ver **FeTuber** ali, com a _Lendária Relíquia Suprema_ e o _Olho da Criação_.  
+
+# Capítulo XIII - Kotahgedom
+
+**WorldPSI** gritou: 
+> _FeTuber, é você amigo?_  
+
+> _Sim **World**, sou eu..._  
+> — Respondeu FeTuber  
+
+> _Seria fofo se você não fosse morrer aqui FeTuber!_  
+> — Gritou **Zarques**  
+
+FeTuber o ignorou, entrou em **Lords** e foi conversar com os mortais. Ele foi questionado sobre para onde iria os hereges quando morrem e Ele respondeu:  
+> _Eles vão para abaixo da "Bedrock" em um local chamado **Nether**._  
+  
+[...]  
+
+FeTuber então abençoou **WorldPSI** dando-lhe imunidade aos fantasmas. E Ele, **Dragui** e **WorldPSI** sairam das muralhas e o _Papa_ disse:  
+> _Bem, você nem precisou encostar em mim para FeTuber aparecer..._  
+
+**Zarques** riu.  
+Os fantasmas começaram a se juntar em cima deles, e os cavaleiros se curvaram. **Dragui** então disse:  
+> _Que caralhos ta acontecendo?!_  
+
+O portal emitiu o raio novamente e por ele passou o _Principe do Nether_, **Kotah**. E ele bradou:  
+> _Há anos não vejo a luz da superficie!_  
+
+Um **Warden** (_fera infernal_) emergiu e **Kotah** montou nele, e foram a caminho de **Lords**. FeTuber então disse:  
+> _Essa é a hora que batalhamos?_  
+
+**Zarques** riu.  
+Eles tomaram um ataque super-sonico pelo **Warden** que anunciou a chegada de **Kotah**, que disse a FeTuber:  
+> _Saia do modo criativo seu covarde!_  
+
+> _Covarde é seu pai que foi comprar cigarro e nunca mais voltou. Eu so saio se eu quiser!_  
+> — Respondeu FeTuber  
+
+FeTuber mudou para o modo sobrevivencia. Os cavaleiros começaram a atacar. E de cada cinquenta deles, quarenta atacava FeTuber e os outros dez **Dragui** e **WorldPSI**.  
+Enquanto os tres batalhavam, **Zarques** e **Kotah** ficaram conversando.  
+
+[...]  
+
+**WorldPSI** retornou para **Lords** e deu inicio a uma missa, que passou a direção para seu filho **NikoDasPanquecas**. Que disse:  
+> _Pai, eu sou apenas um professor de catequese! Não posso assumir uma missã..._  
+
+> _Pois então, pelo meu poder de Papa e pela Feologia, eu **WorldPSI** te declaro Cardeal, pelo ministerio de FeTuber._  
+> — Disse **WorldPSI**  
+
+**Niko** assumiu a missa e **WorldPSI** retornou ao campo de batalha. Varios cavaleiros esqueletos ja haviam sido derrotados. **Dragui** disse:  
+> _Parece que eles não acabam FeTuber..._  
+
+> _Deve ser porque são esqueletos, e seus ossos se juntam , assim aparecendo novamente!_  
+> — Respondeu FeTuber  
+
+> _Então estamos apenas perdendo tempo!_  
+> — Afirmou **WorldPSI**  
+
+FeTuber pegou o _Olho da Criação_ e o arremeçou, assim explodindo quase todos os esqueletos e seus cavalos. Então **Zarques** disse:  
+> _A distração durou mais tempo do que eu imaginava!_  
+
+Da fenda da _Barreira_ desceu um dragão e **Zarques** o montou e ordenou que **Kotah** desse um jeito neles enquanto ele ia resolver algo.  
+
+
+
 
