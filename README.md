@@ -776,7 +776,36 @@ Então ele mandou **euottoo** de volta para **Brothers Clássica**. **Kotah** di
 > — Perguntou FeTuber com raiva  
 
 > _Deus bosta! E agora surdo também..._  
-> — Concluiu **Kotah**
+> — Concluiu **Kotah**  
+
+# Capítulo XIV - A Batalha Final
+
+FeTuber irou-se, seus olhos ficaram vermelhos e raios começaram a cair pela arena. **WorldPSI** lamentou:  
+> _Herege!_  
+
+> _Eu até esta deixando sua palhaçada continuar para ver aonde isso chegava, mas você mexeu com algo maior... Meu Ego! Eu simplesmente poderia acabar com sua existencia, mas isso seria chato e não haveria graça alguma, afinal você nem saberia! Por isso eu não vou te matar, ao inves disso, te prenderei vivo no **Nether**, aonde ficara preso para todos sempre!_  
+> — Bradou FeTuber  
+
+> _Eu sou o Rei do **Nether**!_  
+> — Gritou **Kotah**  
+
+FeTuber lançou um raio em **Kotah** e a terra o engoliu levando-o para as entranhas do **Nether**. E todos os fantasmas e demonios que ele havia invocado desapareceram. Então as pessoas que estavam em cima das muralhas assistindo aplaudiram FeTuber. **Zarques** que estava no céu assistindo tudo com um _Magia de invisibilidade_ apareceu com seu dragão e disse:  
+> _Belo **Wither Storm**, **Kotah** caiu, mais caiu atirando!_  
+
+> _Por que não apareceu antes pra ajudar **Kotah**? Por pouco FeTuber não pega dois cajados numa coelhada só?_  
+> — Disse **WorldPSI**  
+
+**Zarques** riu, e respondeu-lhes:  
+> _Você é engraçado, vou deixa-los retornar para as muralhas e aproveitar os ultimos momentos em **Brothers**!_  
+
+**WorldPSI** olhou para FeTuber e ele os teleportou para o templo. A arena desapareceu e então **Zarques** e FeTuber se encararam. Até FeTuber começar:  
+> _Eu sei o que eu fiz! Sei o que devo, mas você não pode simplesmente vir atrás de mim! Sabe que todos aqui são inocentes..._  
+
+**Zarques** nao respondeu, mas pegou uma espada gigante e foi em direção a FeTuber que começou a voar, mas **Zarques** o puxou para o chão e golpeando-o de forma que ele foi jogado para longe. O **Wither Storm** abriu então o olho e fez surgir dragões, que se espalharam e trouxeram grande destruição para **Brothers**.  
+
+**Zarques** riu.  
+
+A batalha continuava, **WorldPSI**, **Dragui** e os nobres subiram na muralha para ver FeTuber lutando. E depois de varios minutos de batalha a bota de **Zarques** quebrou e **Niko** perguntou a **WorldPSI**
 
 
 
