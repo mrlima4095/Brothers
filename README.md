@@ -613,122 +613,172 @@ Todos ficaram com efeito de cegueira e ouviram-se estrondos. Quando o efeito pas
 
 # Capítulo XIII - Kotahgedom
 
-**WorldPSI** gritou: 
-> _FeTuber, é você amigo?_  
+**WorldPSI** gritou:  
+> _FeTuber, é você, amigo?_  
 
 > _Sim **World**, sou eu..._  
 > — Respondeu FeTuber  
 
-> _Seria fofo se você não fosse morrer aqui FeTuber!_  
+> _Seria fofo se você não fosse morrer aqui, FeTuber!_  
 > — Gritou **Zarques**  
 
-FeTuber o ignorou, entrou em **Lords** e foi conversar com os mortais. Ele foi questionado sobre para onde iria os hereges quando morrem e Ele respondeu:  
+FeTuber o ignorou, entrou em **Lords** e foi conversar com os mortais. Ele foi questionado sobre para onde iam os hereges quando morriam e respondeu:  
 > _Eles vão para abaixo da "Bedrock" em um local chamado **Nether**._  
-  
+
 [...]  
 
-FeTuber então abençoou **WorldPSI** dando-lhe imunidade aos fantasmas. E Ele, **Dragui** e **WorldPSI** sairam das muralhas e o _Papa_ disse:  
+FeTuber então abençoou **WorldPSI**, dando-lhe imunidade aos fantasmas. E ele, **Dragui** e **WorldPSI** saíram das muralhas, e o _Papa_ disse:  
 > _Bem, você nem precisou encostar em mim para FeTuber aparecer..._  
 
 **Zarques** riu.  
 Os fantasmas começaram a se juntar em cima deles, e os cavaleiros se curvaram. **Dragui** então disse:  
-> _Que caralhos ta acontecendo?!_  
+> _Que caralhos tá acontecendo?!_  
 
-O portal emitiu o raio novamente e por ele passou o _Principe do Nether_, **Kotah**. E ele bradou:  
-> _Há anos não vejo a luz da superficie!_  
+O portal emitiu o raio novamente e, por ele, passou o _Príncipe do Nether_, **Kotah**. E ele bradou:  
+> _Há anos não vejo a luz da superfície!_  
 
-Um **Warden** (_fera infernal_) emergiu e **Kotah** montou nele, e foram a caminho de **Lords**. FeTuber então disse:  
+Um **Warden** (_fera infernal_) emergiu, e **Kotah** montou nele, indo em direção a **Lords**. FeTuber então disse:  
 > _Essa é a hora que batalhamos?_  
 
 **Zarques** riu.  
-Eles tomaram um ataque super-sonico pelo **Warden** que anunciou a chegada de **Kotah**, que disse a FeTuber:  
-> _Saia do modo criativo seu covarde!_  
+Eles tomaram um ataque supersônico pelo **Warden**, que anunciou a chegada de **Kotah**, que disse a FeTuber:  
+> _Saia do modo criativo, seu covarde!_  
 
-> _Covarde é seu pai que foi comprar cigarro e nunca mais voltou. Eu so saio se eu quiser!_  
+> _Covarde é seu pai, que foi comprar cigarro e nunca mais voltou. Eu só saio se eu quiser!_  
 > — Respondeu FeTuber  
 
-FeTuber mudou para o modo sobrevivencia. Os cavaleiros começaram a atacar. E de cada cinquenta deles, quarenta atacava FeTuber e os outros dez **Dragui** e **WorldPSI**.  
-Enquanto os tres batalhavam, **Zarques** e **Kotah** ficaram conversando.  
+FeTuber mudou para o modo sobrevivência. Os cavaleiros começaram a atacar. E de cada cinquenta deles, quarenta atacavam FeTuber e os outros dez, **Dragui** e **WorldPSI**.  
+Enquanto os três batalhavam, **Zarques** e **Kotah** ficaram conversando.  
 
 [...]  
 
-**WorldPSI** retornou para **Lords** e deu inicio a uma missa, que passou a direção para seu filho **NikoDasPanquecas**. Que disse:  
-> _Pai, eu sou apenas um professor de catequese! Não posso assumir uma missã..._  
+**WorldPSI** retornou para **Lords** e deu início a uma missa, que passou a direção para seu filho **NikoDasPanquecas**, que disse:  
+> _Pai, eu sou apenas um professor de catequese! Não posso assumir uma missa..._  
 
-> _Pois então, pelo meu poder de Papa e pela Feologia, eu **WorldPSI** te declaro Cardeal, pelo ministerio de FeTuber._  
+> _Pois então, pelo meu poder de Papa e pela Feologia, eu, **WorldPSI**, te declaro Cardeal, pelo ministério de FeTuber._  
 > — Disse **WorldPSI**  
 
-**Niko** assumiu a missa e **WorldPSI** retornou ao campo de batalha. Varios cavaleiros esqueletos ja haviam sido derrotados. **Dragui** disse:  
-> _Parece que eles não acabam FeTuber..._  
+**Niko** assumiu a missa, e **WorldPSI** retornou ao campo de batalha. Vários cavaleiros esqueletos já haviam sido derrotados. **Dragui** disse:  
+> _Parece que eles não acabam, FeTuber..._  
 
-> _Deve ser porque são esqueletos, e seus ossos se juntam , assim aparecendo novamente!_  
+> _Deve ser porque são esqueletos, e seus ossos se juntam, assim aparecendo novamente!_  
 > — Respondeu FeTuber  
 
 > _Então estamos apenas perdendo tempo!_  
 > — Afirmou **WorldPSI**  
 
-FeTuber pegou o _Olho da Criação_ e o arremeçou, assim explodindo quase todos os esqueletos e seus cavalos. Então **Zarques** disse:  
+FeTuber pegou o _Olho da Criação_ e o arremessou, explodindo quase todos os esqueletos e seus cavalos. Então **Zarques** disse:  
 > _A distração durou mais tempo do que eu imaginava!_  
 
-Da fenda da _Barreira_ desceu um dragão e **Zarques** o montou e ordenou que **Kotah** desse um jeito neles enquanto ele ia resolver algo.  
+Da fenda da _Barreira_, desceu um dragão, e **Zarques** o montou, ordenando que **Kotah** desse um jeito neles enquanto ele ia resolver algo.  
 
-> _"**Kotah** não era um problema, posso até dizer que ele é mais fraco que **Zarques**. O que mais complicava era aquele demonio em que ele estava montado. O **Warden**!" - **Draguigamer**, Rei Mago._  
-> 
-> _"Eu sou o mais velho daqui, já vi varias vezes o poder de FeTuber. Porque ele não pega e acaba logo de uma vez com **Kotah** e **Zarques**?" - **WorldPSI**, O Papa._  
-> 
-> _"Meu pai é foda mesmo, ele esta batalhando lá fora sem nenhuma armadura. Ele chamou FeTuber de amigo..." - **NikoDasPanquecas**, Cardeal por FeTuber._  
-> 
-> _"FeTuber retornou!" - **Riuquen**, Líder da Guarda Brotheriana._  
-> 
-> _"Pra falar a verdade eu nunca acreditei em FeTuber, mas agoraq eu vi com meus propios olhos! Queria que **mart21** estivesse aqui para ve-lo tambem..." - **Salun**, Imperador de **Elinar**_  
-> 
-> _"A honra de um **Lord** é mantida por ele e seu líder!" - **Milkchoko223**, Mago._  
-> 
-> _"Eu agradeço por FeTuber me permitir viver..." - **manubiell**, Rei de **Avalon**_  
->
-> 
-> _Quando **LariGHC** estava prestes a morrer, eu a abraçei e fiz cair aquele raio para eles nao perceberem que eu absorvi a alma dela. Agora sempre tenho sonhos com ela e ela me diz as coisas que estao prestes a acontecer. As vezes me vejo conversando com ela até mesmo acordado..._  
+> _"**Kotah** não era um problema, posso até dizer que ele é mais fraco que **Zarques**. O que mais complicava era aquele demônio em que ele estava montado. O **Warden**!"_  
+> — **Draguigamer**, Rei Mago.  
 
-A missa acabou e todos foram para proximo ao portao da entrada de **Lords**, aonde ao lado de fora estava ocorrendo a batalha. Eles diziam que **Brothers** nao poderia acabar assim e que a vida de todos eles estavam nas mãos dos três.  
-FeTuber equipou a  _Lendária Relíquia Suprema_ e foi para cima de Kotah, que desviou do ataque e a reliquia deixou uma grande marca de fogo e areia das almas nos proximos 100 km. **Kotah** então disse:  
+> _"Eu sou o mais velho daqui, já vi várias vezes o poder de FeTuber. Por que ele não pega e acaba logo de uma vez com **Kotah** e **Zarques**?"_  
+> — **WorldPSI**, O Papa.  
+
+> _"Meu pai é foda mesmo, ele está batalhando lá fora sem nenhuma armadura. Ele chamou FeTuber de amigo..."_  
+> — **NikoDasPanquecas**, Cardeal por FeTuber.  
+
+> _"FeTuber retornou!"_  
+> — **Riuquen**, Líder da Guarda Brotheriana.  
+
+> _"Pra falar a verdade, eu nunca acreditei em FeTuber, mas agora que eu vi com meus próprios olhos! Queria que **mart21** estivesse aqui para vê-lo também..."_  
+> — **Salun**, Imperador de **Elinar**.  
+
+> _"A honra de um **Lord** é mantida por ele e seu líder!"_  
+> — **Milkchoko223**, Mago.  
+
+> _"Eu agradeço por FeTuber me permitir viver..."_  
+> — **manubiell**, Rei de **Avalon**.  
+
+A missa acabou e todos foram para perto do portão da entrada de **Lords**, onde, do lado de fora, estava ocorrendo a batalha. Eles diziam que **Brothers** não poderia acabar assim e que a vida de todos eles estava nas mãos dos três.  
+FeTuber equipou a _Lendária Relíquia Suprema_ e foi para cima de Kotah, que desviou do ataque, e a relíquia deixou uma grande marca de fogo e areia das almas nos próximos 100 km. **Kotah** então disse:  
 > _Nossa... Que merda é essa?_  
 
-Ele avançou em cima de FeTuber e enviou um ataque com toda sua força. FeTuber usou a reliquia para se defender, porem o ataque foi tão forte que a despedaçou em oito reliquias menores, que são:  
+Ele avançou em cima de FeTuber e enviou um ataque com toda sua força. FeTuber usou a relíquia para se defender, porém o ataque foi tão forte que a despedaçou em oito relíquias menores, que são:  
 
-1. **Lâmina do Chaos**
-2. **Destruidora de mundos**
-3. **Tridente de Saturno**
-4. **Asas do Anjo egoista**
-5. **A Besta**
-6. **O Escudo**
-7. **A Trombeta**
-8. **Diario de FeTuber**
+1. **Lâmina do Caos**  
+2. **Destruidora de Mundos**  
+3. **Tridente de Saturno**  
+4. **Asas do Anjo Egoísta**  
+5. **A Besta**  
+6. **O Escudo**  
+7. **A Trombeta**  
+8. **Diário de FeTuber**  
 
-Elas voaram e foram pegas por pessoas que estavam em **Lords**. **Kotah** então rindo disse:  
-> _Bem... Parece que você foi desarmado! Essa é a parte que você se render e eu lhes deixo viver mais um pouco._
+Elas voaram e foram pegas por pessoas que estavam em **Lords**. **Kotah**, então, rindo, disse:  
+> _Bem... Parece que você foi desarmado! Essa é a parte em que você se rende e eu lhes deixo viver mais um pouco._  
 
 FeTuber olhou para baixo, suspirou e disse:  
-> _Ah! Eu ia rezar mais esqueci que eu sou quem responde as rezas!_  
+> _Ah! Eu ia rezar, mas esqueci que eu sou quem responde as rezas!_  
 
-Ele fez surgir uma grande arena e chamou **Kotah** para um combate até a morte. **WorldPSI** e **Draguigamer** subiram para o andar de cima da arena e o **Warden** soltou um ataque super-sonico em FeTuber, mas ele absorveu o ataque e devolveu o golpe arremessando **Kotah** e seu demonio para longe. Então FeTuber disse:  
-> _Já que você falou que eu tenho chance de me render, eu tambem vou dar essa chance para você! Aproveite-a e volte para onde veio..._  
+Ele fez surgir uma grande arena e chamou **Kotah** para um combate até a morte. **WorldPSI** e **Draguigamer** subiram para o andar de cima da arena, e o **Warden** soltou um ataque supersônico em FeTuber, mas ele absorveu o ataque e devolveu o golpe, arremessando **Kotah** e seu demônio para longe. Então FeTuber disse:  
+> _Já que você falou que eu tenho chance de me render, eu também vou dar essa chance para você! Aproveite-a e volte para onde veio..._  
 
 > _Você que deveria fugir!_  
 > — Respondeu **Kotah**  
 
 FeTuber riu.  
-**Kotah** fez aparecer alguns demonios para atacar FeTuber. **Dragui** desceu para ajudar FeTuber, e vendo sua atitude **World** desceu tambem. Com isso FeTuber pegou o _Olho da Criação_ e gerou uma _Espada de Diamante_, indo para o combate direto.  
+**Kotah** fez aparecer alguns demônios para atacar FeTuber. **Dragui** desceu para ajudar FeTuber, e, vendo sua atitude, **World** desceu também. Com isso, FeTuber pegou o _Olho da Criação_ e gerou uma _Espada de Diamante_, indo para o combate direto.  
 
-Após todos os demonios serem derrotados, a arena extremesseu e algo começou a emergir das aguas por tras de **Lords**. Com o passar de duas horas. O que estava subindo pode ser visto por completo, e percebeu-se que era um...  
+Após todos os demônios serem derrotados, a arena estremeceu e algo começou a emergir das águas por trás de **Lords**. Com o passar de duas horas, o que estava subindo pôde ser visto por completo, e percebeu-se que era um...  
 
-> _Não é possivel..._  
+> _Não é possível..._  
 > — Gritou **Draguigamer**  
 
-**Riuquen** saiu correndo de **Lords** para a arena aonde FeTuber e **Kotah** estavam batalhando com o _Diario de **euottoo**_ e disse:  
-> _**Dragui**... **World**! Apareceu uma nova pagina no diario, ela ta falando sobre o mostro que ta aparecendo!_  
+**Riuquen** saiu correndo de **Lords** para a arena onde FeTuber e **Kotah** estavam batalhando com o _Diário de **euottoo**_ e disse:  
+> _**Dragui**... **World**! Apareceu uma nova página no diário, ela tá falando sobre o monstro que tá aparecendo!_  
 
-**Riuquen** fez um "_no-clip_" com eles três, levando-os para o andar de cima do templo e **Dragui** perguntou-lhes:  
+**Riuquen** fez um "_no-clip_" com eles três, levando-os para o andar de cima do templo, e **Dragui** perguntou-lhes:  
 > _Como viemos parar aqui?_  
 
 > _Aprendi uns truques..._  
 > — Respondeu **Riuquen**  
+
+> _Vamos, diga o que o diário fala da criatura!_  
+> — Disse **WorldPSI**  
+
+> _Bem, eu só vi o desenho da criatura, eu não li! Vamos ver juntos agora._  
+> — Respondeu **Riuquen**  
+
+> _Aos poucos a criatura levantou-se, e sua aura matava todos os seres pacíficos próximos. Junto dele vinha a escuridão, posso chamá-lo de Rei da Noite e da Destruição, a grande Tormenta. Facilmente ele destruirá tudo. Seu nome é **Wither Storm**. Maldito dia que quis ficar aqui!_  
+
+> _O que é **Wither Storm**?_  
+> — Perguntou **Riuquen**  
+
+> _**Euottoo** não tinha morrido?_  
+> — Perguntou **Dragui**  
+
+> _**Kotah** ou **Zarques** deve estar mexendo na linha do tempo!_  
+> — Respondeu **WorldPSI**  
+
+Houve outro terremoto, e FeTuber teleportou os três novamente para a arena, onde **Kotah** estava fazendo aparecer demônios para atrapalhá-lo enquanto realizava um ritual para levar a besta ao nível final. **Draguigamer** disse:  
+> _FeTuber, você não pode matá-lo de uma vez não?_  
+
+> _Posso sim! Mas desse jeito não teria graça alguma. O que eu quero é ver até onde isso tudo vai!_  
+> — Respondeu FeTuber  
+
+FeTuber fez aparecer aldeões e os fulminou, transformando-os em cinzas. E, por último, fez aparecer **euottoo**, que gritou:  
+> _FeTuber, me perdoe. Deixe-me ficar aqui!_  
+
+Então ele mandou **euottoo** de volta para **Brothers Clássica**. **Kotah** disse:  
+> _Você exerce um belo poder sobre sua criação. Pena que eu não sou um deles, você não pode fazer nada contra mim!_  
+
+> _O que você quer com **Brothers**?_  
+> — Perguntou FeTuber  
+
+> _Com **Brothers**? Nada! Um deus bosta como você deveria saber..._  
+> — Disse **Kotah**  
+
+> _O que disse?_  
+> — Perguntou FeTuber com raiva  
+
+> _Deus bosta! E agora surdo também..._  
+> — Concluiu **Kotah**
+
+
+
+
+
