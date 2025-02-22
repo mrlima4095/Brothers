@@ -672,6 +672,19 @@ FeTuber pegou o _Olho da Criação_ e o arremeçou, assim explodindo quase todos
 
 Da fenda da _Barreira_ desceu um dragão e **Zarques** o montou e ordenou que **Kotah** desse um jeito neles enquanto ele ia resolver algo.  
 
-
-
-
+> _"**Kotah** não era um problema, posso até dizer que ele é mais fraco que **Zarques**. O que mais complicava era aquele demonio em que ele estava montado. O **Warden**!" - **Draguigamer**, Rei Mago._  
+> 
+> _"Eu sou o mais velho daqui, já vi varias vezes o poder de FeTuber. Porque ele não pega e acaba logo de uma vez com **Kotah** e **Zarques**?" - **WorldPSI**, O Papa._  
+> 
+> _Meu pai é foda mesmo, ele esta batalhando lá fora sem nenhuma armadura. Ele chamou FeTuber de amigo..." - **NikoDasPanquecas**, Cardeal por FeTuber._  
+> 
+> _FeTuber retornou!" - **Riuquen**, Líder da Guarda Brotheriana._  
+> 
+> _"Pra falar a verdade eu nunca acreditei em FeTuber, mas agoraq eu vi com meus propios olhos! Queria que **mart21** estivesse aqui para ve-lo tambem..." - **Salun**, Imperador de **Elinar**_  
+> 
+> _"A honra de um **Lord** é mantida por ele e seu líder!" - **Milkchoko223**, Mago._  
+> 
+> _"Eu agradeço por FeTuber me permitir viver..." - **manubiell**, Rei de **Avalon**_  
+>
+> 
+> _Quando **LariGHC** estava prestes a morrer, eu a abraçei e fiz cair aquele raio para eles nao perceberem que eu absorvi a alma dela. Agora sempre tenho sonhos com ela e ela me diz as coisas que estao prestes a acontecer. As vezes me vejo conversando com ela até mesmo acordado..._  
