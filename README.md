@@ -687,4 +687,13 @@ Da fenda da _Barreira_ desceu um dragão e **Zarques** o montou e ordenou que **
 > _"Eu agradeço por FeTuber me permitir viver..." - **manubiell**, Rei de **Avalon**_  
 >
 > 
-> _Quando **LariGHC** estava prestes a morrer, eu a abraçei e fiz cair aquele raio para eles nao perceberem que eu absorvi a alma dela. Agora sempre tenho sonhos com ela e ela me diz as coisas que estao prestes a acontecer. As vezes me vejo conversando com ela até mesmo acordado..._  
+> _Quando **LariGHC** estava prestes a morrer, eu a abraçei e fiz cair aquele raio para eles nao perceberem que eu absorvi a alma dela. Agora sempre tenho sonhos com ela e ela me diz as coisas que estao prestes a acontecer. As vezes me vejo conversando com ela até mesmo acordado..._
+
+A missa acabou e todos foram para proximo ao portao da entrada de **Lords**, aonde ao lado de fora estava ocorrendo a batalha. Eles diziam que **Brothers** nao poderia acabar assim e que a vida de todos eles estavam nas mãos dos três.  
+FeTuber equipou a  _Lendária Relíquia Suprema_ e foi para cima de Kotah, que desviou do ataque e a reliquia deixou uma grande marca de fogo e areia das almas nos proximos 100 km. **Kotah** então disse:  
+> _Nossa... Que merda é essa?_
+
+Ele avançou em cima de FeTuber e enviou um ataque com toda sua força. FeTuber usou a reliquia para se defender, porem o ataque foi tão forte que a despedaçou em nove reliquias menores, que são:
+
+1. **
+
