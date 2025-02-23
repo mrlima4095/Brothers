@@ -805,7 +805,56 @@ FeTuber lançou um raio em **Kotah** e a terra o engoliu levando-o para as entra
 
 **Zarques** riu.  
 
-A batalha continuava, **WorldPSI**, **Dragui** e os nobres subiram na muralha para ver FeTuber lutando. E depois de varios minutos de batalha a bota de **Zarques** quebrou e **Niko** perguntou a **WorldPSI**
+A batalha continuava, **WorldPSI**, **Dragui** e os nobres subiram na muralha para ver FeTuber lutando. E depois de varios minutos de batalha a bota de **Zarques** quebrou e **Niko** perguntou a **WorldPSI**:  
+> _Pai, existe alguma possibilidade de **Zarques** vencer?_  
+
+> _Olha, FeTuber poderia ter derrotado ele logo no instante que ele apareceu, mas ele o enfrenta pois gosta de batalhas._  
+> — Respondeu **WorldPSI**  
+
+**Niko** olhou para baixo e rezou algo, que somente ele e FeTuber sabem o que foi rezado, mas isto fez com que todos recebessem o efeito de _Sorte V_. Com isso **Zarques** tomou dano fatal e, só nao caiu pois tinha consigo um _Totem da Vida Etherna_ que o salvou. Ele começou a correr rumo ao **Wither Storm**. FeTuber o seguiu. Ao chegarem proximo da besta, **Zarques** chamou seu dragao e montou-o, e foi rumo a cabeça da besta. Já FeTuber voou com o poder do modo criativo. E chegando lá em cima a batalha continuou, e estava infestado de mortos-vivos, zumbi e esqueletos que os atacavam constantemente. E FeTuber perguntou-lhes:  
+> _Pra invocar um **Wither Storm** não precisa de um **Bloco de Comando**?_  
+
+> _Sim, precisa!_  
+> — Respondeu **Zarques**  
+
+> _E como **Kotah** conseguiu um?_  
+> — Perguntou FeTuber  
+
+> _Por que eu te contaria?_  
+> — Perguntou **Zarques**  
+
+> _Noooossssaa! Ele é burro, ele podia usar o bloco pra acessar o modo criativo._  
+> — Respondeu FeTuber rindo  
+
+> _Enfim, ele até pode ser burro, mas eu não! Vou te derrotar, pegar o **Bloco de Comando** e reconstruir **Brothers** para adorar a mim!_  
+> — Concluiu **Zarques**  
+
+> _Vocês cheiram pó? Por que querem tanto **Brothers**?_  
+> — Perguntou FeTuber  
+
+> _Diga voce... O que é tao bom aqui que nos atrai?_  
+> — Perguntou **Zarques**  
+
+FeTuber pensou, mas não quis responder. **Zarques** jogou Ele para longe e começou a subir rumo a cabeça central da besta, aonde fica o _Coração_ da besta, o **Bloco de Comando**. **Dragui** e **WorldPSI** pediram para **Riuquen** que os mandassem para FeTuber com seu "_no-clip_", mas ele respondeu-lhes:   
+> _É, eu não sei fazer isso sem ir junto. Vou pegar minhas armaduras em casa e já levo vocês lá!  
+
+Ele foi para casa e pegou suas armas e armaduras e foram para o **Wither Storm** aonde estava FeTuber, que seguia atrás de **Zarques**. Ao ve-los FeTuber perguntou:  
+> _O que fazem aqui?_  
+
+> _Viemos ajudar!_  
+> — Respondeu **Dragui**  
+
+> _Não precisava gente. Eu dava conta!_  
+> — Disse FeTuber rindo.  
+
+> _Deixa disse FeTuber, uma ajudinha nunca é demais!_
+> — Continuou **WorldPSI**  
+
+
+
+
+
+
 
 
 
