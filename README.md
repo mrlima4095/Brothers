@@ -783,35 +783,37 @@ Então ele mandou **euottoo** de volta para **Brothers Clássica**. **Kotah** di
 FeTuber irou-se, seus olhos ficaram vermelhos e raios começaram a cair pela arena. **WorldPSI** lamentou:  
 > _Herege!_  
 
-> _Eu até esta deixando sua palhaçada continuar para ver aonde isso chegava, mas você mexeu com algo maior... Meu Ego! Eu simplesmente poderia acabar com sua existencia, mas isso seria chato e não haveria graça alguma, afinal você nem saberia! Por isso eu não vou te matar, ao inves disso, te prenderei vivo no **Nether**, aonde ficara preso para todos sempre!_  
+> _Eu até estava deixando sua palhaçada continuar para ver aonde isso chegava, mas você mexeu com algo maior... Meu ego! Eu simplesmente poderia acabar com sua existência, mas isso seria chato e não haveria graça alguma, afinal, você nem saberia! Por isso, eu não vou te matar. Ao invés disso, te prenderei vivo no **Nether**, onde ficará preso para todo o sempre!_  
 > — Bradou FeTuber  
 
 > _Eu sou o Rei do **Nether**!_  
 > — Gritou **Kotah**  
 
-FeTuber lançou um raio em **Kotah** e a terra o engoliu levando-o para as entranhas do **Nether**. E todos os fantasmas e demonios que ele havia invocado desapareceram. Então as pessoas que estavam em cima das muralhas assistindo aplaudiram FeTuber. **Zarques** que estava no céu assistindo tudo com um _Magia de invisibilidade_ apareceu com seu dragão e disse:  
-> _Belo **Wither Storm**, **Kotah** caiu, mais caiu atirando!_  
+FeTuber lançou um raio em **Kotah**, e a terra o engoliu, levando-o para as entranhas do **Nether**. Todos os fantasmas e demônios que ele havia invocado desapareceram. Então, as pessoas que estavam em cima das muralhas assistindo aplaudiram FeTuber. **Zarques**, que estava no céu assistindo tudo com um _Magia de Invisibilidade_, apareceu com seu dragão e disse:  
+> _Belo **Wither Storm**, **Kotah** caiu, mas caiu atirando!_  
 
-> _Por que não apareceu antes pra ajudar **Kotah**? Por pouco FeTuber não pega dois cajados numa coelhada só?_  
+> _Por que não apareceu antes para ajudar **Kotah**? Por pouco, FeTuber não pega dois cajados numa coelhada só!_  
 > — Disse **WorldPSI**  
 
-**Zarques** riu, e respondeu-lhes:  
-> _Você é engraçado, vou deixa-los retornar para as muralhas e aproveitar os ultimos momentos em **Brothers**!_  
+**Zarques** riu e respondeu-lhes:  
+> _Você é engraçado, vou deixá-los retornar para as muralhas e aproveitar os últimos momentos em **Brothers**!_  
 
-**WorldPSI** olhou para FeTuber e ele os teleportou para o templo. A arena desapareceu e então **Zarques** e FeTuber se encararam. Até FeTuber começar:  
+**WorldPSI** olhou para FeTuber, e ele os teleportou para o templo. A arena desapareceu, e então **Zarques** e FeTuber se encararam, até FeTuber começar:  
 > _Eu sei o que eu fiz! Sei o que devo, mas você não pode simplesmente vir atrás de mim! Sabe que todos aqui são inocentes..._  
 
-**Zarques** nao respondeu, mas pegou uma espada gigante e foi em direção a FeTuber que começou a voar, mas **Zarques** o puxou para o chão e golpeando-o de forma que ele foi jogado para longe. O **Wither Storm** abriu então o olho e fez surgir dragões, que se espalharam e trouxeram grande destruição para **Brothers**.  
+**Zarques** não respondeu, mas pegou uma espada gigante e foi em direção a FeTuber, que começou a voar. No entanto, **Zarques** o puxou para o chão, golpeando-o com força, jogando-o para longe. O **Wither Storm** então abriu o olho e fez surgir dragões, que se espalharam e trouxeram grande destruição para **Brothers**.  
 
 **Zarques** riu.  
 
-A batalha continuava, **WorldPSI**, **Dragui** e os nobres subiram na muralha para ver FeTuber lutando. E depois de varios minutos de batalha a bota de **Zarques** quebrou e **Niko** perguntou a **WorldPSI**:  
+A batalha continuava. **WorldPSI**, **Dragui** e os nobres subiram na muralha para ver FeTuber lutando. Depois de vários minutos de batalha, a bota de **Zarques** quebrou, e **Niko** perguntou a **WorldPSI**:  
 > _Pai, existe alguma possibilidade de **Zarques** vencer?_  
 
-> _Olha, FeTuber poderia ter derrotado ele logo no instante que ele apareceu, mas ele o enfrenta pois gosta de batalhas._  
+> _Olha, FeTuber poderia ter derrotado ele no instante em que apareceu, mas ele o enfrenta porque gosta de batalhas._  
 > — Respondeu **WorldPSI**  
 
-**Niko** olhou para baixo e rezou algo, que somente ele e FeTuber sabem o que foi rezado, mas isto fez com que todos recebessem o efeito de _Sorte V_. Com isso **Zarques** tomou dano fatal e, só nao caiu pois tinha consigo um _Totem da Vida Etherna_ que o salvou. Ele começou a correr rumo ao **Wither Storm**. FeTuber o seguiu. Ao chegarem proximo da besta, **Zarques** chamou seu dragao e montou-o, e foi rumo a cabeça da besta. Já FeTuber voou com o poder do modo criativo. E chegando lá em cima a batalha continuou, e estava infestado de mortos-vivos, zumbi e esqueletos que os atacavam constantemente. E FeTuber perguntou-lhes:  
+**Niko** olhou para baixo e rezou algo, que somente ele e FeTuber sabem o que foi. Isso fez com que todos recebessem o efeito de _Sorte V_. Com isso, **Zarques** tomou dano fatal e só não caiu porque tinha consigo um _Totem da Vida Eterna_, que o salvou. Ele começou a correr rumo ao **Wither Storm**. FeTuber o seguiu.  
+
+Ao chegarem próximo da besta, **Zarques** chamou seu dragão, montou-o e foi rumo à cabeça da criatura. Já FeTuber voou com o poder do modo criativo. Ao chegarem lá em cima, a batalha continuou, e estava infestado de mortos-vivos, zumbis e esqueletos que os atacavam constantemente. FeTuber perguntou:  
 > _Pra invocar um **Wither Storm** não precisa de um **Bloco de Comando**?_  
 
 > _Sim, precisa!_  
@@ -821,7 +823,7 @@ A batalha continuava, **WorldPSI**, **Dragui** e os nobres subiram na muralha pa
 > — Perguntou FeTuber  
 
 > _Por que eu te contaria?_  
-> — Perguntou **Zarques**  
+> — Retrucou **Zarques**  
 
 > _Noooossssaa! Ele é burro, ele podia usar o bloco pra acessar o modo criativo._  
 > — Respondeu FeTuber rindo  
@@ -832,68 +834,66 @@ A batalha continuava, **WorldPSI**, **Dragui** e os nobres subiram na muralha pa
 > _Vocês cheiram pó? Por que querem tanto **Brothers**?_  
 > — Perguntou FeTuber  
 
-> _Diga voce... O que é tao bom aqui que nos atrai?_  
+> _Diga você... O que é tão bom aqui que nos atrai?_  
 > — Perguntou **Zarques**  
 
-FeTuber pensou, mas não quis responder. **Zarques** jogou Ele para longe e começou a subir rumo a cabeça central da besta, aonde fica o _Coração_ da besta, o **Bloco de Comando**. **Dragui** e **WorldPSI** pediram para **Riuquen** que os mandassem para FeTuber com seu "_no-clip_", mas ele respondeu-lhes:   
+FeTuber pensou, mas não quis responder. **Zarques** jogou ele para longe e começou a subir rumo à cabeça central da besta, onde ficava o _Coração_ da criatura, o **Bloco de Comando**.  
+
+**Dragui** e **WorldPSI** pediram para **Riuquen** que os mandasse para FeTuber com seu "_no-clip_", mas ele respondeu-lhes:  
 > _É, eu não sei fazer isso sem ir junto. Vou pegar minhas armaduras em casa e já levo vocês lá!_  
 
-Ele foi para casa e pegou suas armas e armaduras e foram para o **Wither Storm** aonde estava FeTuber, que seguia atrás de **Zarques**. Ao ve-los FeTuber perguntou:  
+Ele foi para casa, pegou suas armas e armaduras e foi para o **Wither Storm**, onde estava FeTuber, que seguia atrás de **Zarques**. Ao vê-los, FeTuber perguntou:  
 > _O que fazem aqui?_  
 
 > _Viemos ajudar!_  
 > — Respondeu **Dragui**  
 
-> _Não precisava gente. Eu dava conta!_  
+> _Não precisava, gente. Eu dava conta!_  
 > — Disse FeTuber rindo.  
 
-> _Deixa disse FeTuber, uma ajudinha nunca é demais!_  
+> _Deixa disso, FeTuber, uma ajudinha nunca é demais!_  
 > — Continuou **WorldPSI**  
 
-Eles foram atras de **Zarques** e o seguiram pelas entranhas do **Wither Storm**. Até que foram despistados, e **Draguigamer** disse:  
+Eles foram atrás de **Zarques** e o seguiram pelas entranhas do **Wither Storm**, até que foram despistados. **Draguigamer** disse:  
 > _Isso é enorme! Nunca vamos achar **Zarques**..._  
 
-> _Eu vou tentar acha-lo. Me esperem!_  
+> _Eu vou tentar achá-lo. Me esperem!_  
 > — Disse **Riuquen**  
 
 Ele realizou seu "_no-clip_" pelas entranhas da besta, e **WorldPSI** perguntou a FeTuber:  
-> _Por que **Riquen** pode se teleportar?_  
+> _Por que **Riuquen** pode se teleportar?_  
 
-> _Todos tem poderes especiais, só que nem todos sabem quais são suas habilidades ou até mesmo como usa-las?_  
+> _Todos têm poderes especiais, só que nem todos sabem quais são suas habilidades ou até mesmo como usá-las._  
 > — Respondeu FeTuber  
 
-Riuquen rezou dizendo que havia encontrado **Zarques** e dizendo as coordenadas de onde ele estava. FeTuber os teleportou, e estavam na cabeça da besta, aonde no centro era possivel ver o **Bloco de Comando**. **Zarques** então disse:  
-> _Não se aproximem, se não eu pegarei o bloco e matarei todos!!!_  
+**Riuquen** rezou dizendo que havia encontrado **Zarques** e passou as coordenadas de onde ele estava. FeTuber os teleportou, e eles chegaram à cabeça da besta, onde no centro era possível ver o **Bloco de Comando**. **Zarques** então disse:  
+> _Não se aproximem, senão eu pegarei o bloco e matarei todos!!!_  
 
 **Dragui** lentamente foi avançando e disse:  
-> _Calma ai né pai... Vamos conversar!_  
+> _Calma aí, né, pai... Vamos conversar!_  
 
-**Zarques** jogou ele para longe e repetiu o que disse sobre sobre não se aproximarem. **WorldPSI** disse:  
-> _Vamos FeTuber! Vamos acabar logo com esse herege..._  
+**Zarques** jogou-o para longe e repetiu a ameaça. **WorldPSI** disse:  
+> _Vamos, FeTuber! Vamos acabar logo com esse herege..._  
 
-> _Ah, agora que estava ficando legal... O que deveriamos sentenciar a **Zarques**?_  
+> _Ah, agora que estava ficando legal... O que deveríamos sentenciar a **Zarques**?_  
 > — Lamentou FeTuber  
 
-> _Prende-lo no Nether com **Kotah**..._  
+> _Prendê-lo no Nether com **Kotah**..._  
 > — Sugeriu **Riuquen**  
 
-> _Coloque ele em um poço de lava com regeneração, deste modo ele sofrera para sempre!_  
+> _Coloque-o em um poço de lava com regeneração, deste modo ele sofrerá para sempre!_  
 > — Sugeriu **Dragui**  
 
 > _Quando isso virou um julgamento?!_  
 > — Perguntou **Zarques**  
 
-> _A partir do momneto que Eu quis!_  
+> _A partir do momento que eu quis!_  
 > — Respondeu FeTuber  
 
-Enquanto eles conversavam sobre a sentença de **Zarques** ele ficava rindo, FeTuber polia o _Olho da Criação_, e então usou-o para arremessar **Zarques** na barreira que estava a 500 blocos dali. Então ele levantou voou e retornou para a besta, onde desafio FeTuber para um duelo até a morte!  
-O **Wither Storm** começou a se mover para o sul, direção de **Lords** e **Dragui** começou a tomar dano por isso.  
-FeTuber aceitou e o duelo começou, **Zarques** saiu disparado atacando Ele, mas FeTuber permaneceu parado, não se movia nem para atacar e nem tampouco para defender-se. E após varios golpes de **Zarques**, FeTuber morreu.  
-Zarques riu e disse:  
+Enquanto conversavam, FeTuber polia o _Olho da Criação_ e usou-o para arremessar **Zarques** na barreira, 500 blocos dali. Ele voltou à besta e aceitou o duelo de **Zarques**. No entanto, FeTuber permaneceu parado enquanto era golpeado repetidamente até ser derrotado.  
+
+**Zarques** riu e disse:  
 > _**Brothers** agora é minha!_  
 
-Os tres começaram a chorar e lamentar-se, pois sabiam que todos agora estavam perdidos. **Zarques** continuou:  
-> _Adorem a mim, o unico e mais forte, por que eu matei Fe..._
-
-Ele não pode terminar a frase, pois foi atingido no coração.  
+Mas antes que pudesse terminar a frase, foi atingido diretamente no coração.
 
