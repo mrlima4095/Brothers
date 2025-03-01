@@ -897,75 +897,77 @@ Enquanto conversavam, FeTuber polia o _Olho da Criação_ e usou-o para arremess
 
 Mas antes que pudesse terminar a frase, foi atingido diretamente no coração.  
 
-# Capítulo XV - Brothers Timeline  
+# Capítulo XV - Brothers Timeline
 
-Enquanto **Zarques** ria e e falava FeTuber desceu dos ceus e com o _Olho da Criação_ na forma do _Arco Divino_ o atingiu. **Zarques** virou-se e ao ver que Ele estava vivo disse:  
-> _Como é possivel? Eu te matei!!!_  
+Enquanto **Zarques** ria e falava, FeTuber desceu dos céus e, com o _Olho da Criação_ na forma do _Arco Divino_, o atingiu. **Zarques** virou-se e, ao ver que Ele estava vivo, disse:
 
-Essas foram as ultimas palavras dele, pois o dano da flecha o matou. FeTuber então enviou seu corpo ao **Nether** e disse:  
-> _Acabou **Zarquesmero** no final você era só mais um como qualquer outro!_  
+> _Como é possível? Eu te matei!!!_
 
-FeTuber pegou o **Bloco de Comando** e o **Wither Storm** se explodiu, destruindo toda a Brothers. Exceto **Lords** que estava protegida, mas o dano foi todo absorvido por **Draguigamer** que morreu instantaneamente. E a _armadura do Rei Mago_ caiu. **WorldPSI** a pegou. FeTuber guardou o corpo dele e foram para **Lords** onde houve uma grande festa e uma missa com a participação especial d'Ele, e isso trouxe o fim a chuva.  
+Essas foram as últimas palavras dele, pois o dano da flecha o matou. FeTuber então enviou seu corpo ao **Nether** e disse:
 
-**WorldPSI** perguntou:  
-> _Por que você deixou **Zarques** te derrotar?_  
+> _Acabou **Zarquesmero**; no final você era só mais um como qualquer outro!_
+
+FeTuber pegou o **Bloco de Comando** e o **Wither Storm** se explodiu, destruindo toda a **Brothers**, exceto **Lords**, que estava protegida. Mas o dano foi todo absorvido por **Draguigamer**, que morreu instantaneamente. E a _armadura do Rei Mago_ caiu. **WorldPSI** a pegou. FeTuber guardou o corpo dele e foram para **Lords**, onde houve uma grande festa e uma missa com a participação especial d'Ele, e isso trouxe o fim à chuva.
+
+**WorldPSI** perguntou:
+
+> _Por que você deixou **Zarques** te derrotar?_
 
 > _Ele não me derrotou... Eu não estava aqui!_  
-> — Respondeu FeTuber  
+> — Respondeu FeTuber
 
-Todos ficaram confusos e **Niko** disse:  
-> _Mas todos nós vimos você descendo dos ceus e lutando com **Kotah**._  
+Todos ficaram confusos e **Niko** disse:
+
+> _Mas todos nós vimos você descendo dos céus e lutando com **Kotah**._
 
 > _Realmente viram Eu? Ou estavam com cegueira quando eu apareci?_  
 > — Questionou-os FeTuber
 
-> _Estavamos com cegueira._  
-> — Respondeu **Riuquen**  
+> _Estávamos com cegueira._  
+> — Respondeu **Riuquen**
 
 > _O que queres dizer? Não existe apenas um FeTuber?_  
-> — Perguntou **Riuquen**  
+> — Perguntou **Riuquen**
 
-> _Eu sou o unico! Apenas criei um corpo e desci controlando ele, se eu realmente houvesse descido, não poderia nem me divertir eu teria de mata-los instantaneamente, pois minha aura não me permitiria ficar com seres tao impuros tão perto! Inclusive esse corpo tambem não é o meu verdadeiro..._  
-> — Respondeu FeTuber  
+> _Eu sou o único! Apenas criei um corpo e desci controlando ele. Se eu realmente houvesse descido, não poderia nem me divertir, eu teria de matá-los instantaneamente, pois minha aura não me permitiria ficar com seres tão impuros tão perto! Inclusive esse corpo também não é o meu verdadeiro..._  
+> — Respondeu FeTuber
 
-> _Então nao era exatamente você que estava batalhando contra eles?_  
-> — Perguntou um dos nobres  
+> _Então não era exatamente você que estava batalhando contra eles?_  
+> — Perguntou um dos nobres
 
-> _Em nenhum local, aqui, em **Laboria** ou em qualquer outro local.... Não há um ser digno de batalhar comigo!_  
-> — Respondeu FeTuber 
+> _Em nenhum local, aqui, em **Laboria** ou em qualquer outro local... Não há um ser digno de batalhar comigo!_  
+> — Respondeu FeTuber
 
-E o sol se escondeu e o brilho de FeTuber substituiu o da grande estrela. **WorldPSI** falou com FeTuber sobre o estado de destruição em que **Brothers** se encontrava, e em uma convocação publica todos votaram a favor de que FeTuber recriasse o mundo. Todos então foram para central, e FeTuber os desacordou.  
+E o sol se escondeu, e o brilho de FeTuber substituiu o da grande estrela. **WorldPSI** falou com FeTuber sobre o estado de destruição em que **Brothers** se encontrava, e em uma convocação pública todos votaram a favor de que FeTuber recriasse o mundo. Todos então foram para o centro, e FeTuber os desacordou.
 
-[...]  
+[...]
 
-O centro continuou quase igual, mas o resto de **Brothers** estava totalmente selvagem e desconhecido para eles. FeTuber disse que deveriam formar uma unica nação que seria o Grande Reino de **Brothers**. E as demais coisas ele diria futuramente ao clero.  
+O centro continuou quase igual, mas o resto de **Brothers** estava totalmente selvagem e desconhecido para eles. FeTuber disse que deveriam formar uma única nação, que seria o Grande Reino de **Brothers**. E as demais coisas ele diria futuramente ao clero.
 
-Os nobres se reuniram e houve uma grande unificação e a fundação oficial da _Igreja de FeTuber_ por **WorldPSI**. Ele que tambem proibiu o uso de magia por todos e decretou que isso era uma _heresia_ grave. E foi ortogada a primeira constituição, que iniciou o que eles chamavam de **Segunda Brothers**.  
+Os nobres se reuniram, e houve uma grande unificação e a fundação oficial da _Igreja de FeTuber_ por **WorldPSI**. Ele também proibiu o uso de magia por todos e decretou que isso era uma _heresia_ grave. Foi outorgada a primeira constituição, que iniciou o que eles chamavam de **Segunda Brothers**.
 
-O reino cresceu, foi feito ruas e avenidas, delimitado terrenos residencial, comercial e industrial. Os magos, agora com a magia proibida tiveram de arranjar outras profissões. **WorldPSI** comprou uma casa para **Niko** e foi morar com ele. Os dois construiram um poram com uma fornalha industrial e um armazem de itens.  
+O reino cresceu, foram feitas ruas e avenidas, delimitados terrenos residenciais, comerciais e industriais. Os magos, agora com a magia proibida, tiveram de arranjar outras profissões. **WorldPSI** comprou uma casa para **Niko** e foi morar com ele. Os dois construíram um porão com uma fornalha industrial e um armazém de itens.
 
-Foi construido no Cartorio uma lojinha que vendia minerios, comidas e algumas utilidades como madeira, molde de ferraria, bebidas, entre outros produtos. **Dittocraft123** continuou seu trabalho no cartorio sendo escriba. **David125712** arranjou um emprego de auxiliar. **Manubiell** virou engenheiro e fundou a _Empreiteira de Brothers_. **Salun** virou ministro da fazenda. Em geral, **Brothers** não tinha um lider de estado, mas seguiu no poder dos nobres. Este regime durou até 1894 quando o **Dolar Brotheriano** entrou em crise em relação a _esmeralda_.  
+Foi construída no Cartório uma lojinha que vendia minérios, comidas e algumas utilidades, como madeira, molde de ferraria, bebidas, entre outros produtos. **Dittocraft123** continuou seu trabalho no cartório, sendo escriba. **David125712** arranjou um emprego de auxiliar. **Manubiell** virou engenheiro e fundou a _Empreiteira de Brothers_. **Salun** virou ministro da fazenda. Em geral, **Brothers** não tinha um líder de estado, mas seguiu no poder dos nobres. Este regime durou até 1894, quando o **Dólar Brotheriano** entrou em crise em relação à _esmeralda_.
 
-Isto iniciou uma guerra civil entre os nobres que luvravam e tinham capital em _esmeralda_ e os trabalhadores que recebiam seus salarios em dolar. A guerra durou dois anos, seu fim foi obtido com o assasinato de **Salun** por um vingador desconhecido.  
+Isto iniciou uma guerra civil entre os nobres que lucravam e tinham capital em _esmeralda_ e os trabalhadores que recebiam seus salários em dólar. A guerra durou dois anos, e seu fim foi obtido com o assassinato de **Salun** por um vingador desconhecido.
 
-[...]  
+[...]
 
-Já estava tarde da noite e **WorldPSI** estava em sua casa quando ele ouve alguem batendo na porta, era **Riuquen** que disse:  
-> _**WorldPSI** preciso me confessar!_  
+Já estava tarde da noite, e **WorldPSI** estava em sua casa quando ele ouviu alguém batendo na porta. Era **Riuquen**, que disse:
+
+> _**WorldPSI**, preciso me confessar!_
 
 > _Oh amigo, diga-me o que fizeste._  
-> — Disse **WorldPSI**  
+> — Disse **WorldPSI**
 
 > _Eu matei **Salun**!_  
-> — Continuou **Riquen**  
+> — Continuou **Riuquen**
 
-> _O que **Riquen**? Você é o Xerife!! Como pode fazer isto?_  
-> — Perguntou **WorldPSI** assustado   
+> _O quê, **Riuquen**? Você é o Xerife! Como pode fazer isso?_  
+> — Perguntou **WorldPSI**, assustado
 
-> _Quando me tornei Xerife, há muito tempo atras lembra? Eu jurei trabalhar pela paz em **Brothers**! E **Salun** era a causa de toda essa guerra..._  
-
-
-
+> _Quando me tornei Xerife, há muito tempo atrás, lembra? Eu jurei trabalhar pela paz em **Brothers**! E **Salun** era a causa de toda essa guerra..._
 
 
 
